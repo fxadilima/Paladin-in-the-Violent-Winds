@@ -216,6 +216,10 @@ Ah Luo melompat turun dari atas pohon di sebelah barat sambil membawa Avraham. M
 
 "Antar semuanya ke rumah Kepala Desa," jawab Tajkis.
 
+---
+
+*Let's review how they enter the palace, concurrent with some event in Ningxia:*
+
 ## *Dadu, November 1366: Kedatangan Putri Yi An*
 
 Hanya Ah Luo sendiri yang masuk melalui pintu gerbang istana sambil menggandeng tangan Rut, menyapa pengawal di pintu masuk dengan ramah. Pengawal itu sama sekali tidak merasa perlu menanyakan tanda pengenal. "Niangniang, kami tidak melihat Niangniang keluar."
@@ -270,10 +274,6 @@ Terdengar beberapa orang berdehem di belakang Ah Luo dan Dongfang Yuxian, bebera
 
 Dalam hati Ah Luo tertawa. Orang-orang di belakangnya pasti sedang memandang anak itu dengan curiga, menurut pikiran mereka masing-masing.
 
----
-
-*Immediately after this, Toghon Temur put the Assembly on hold:*
-
 Berikutnya, terdengar Toghon berkata, "Ah Luo, kau duduk di sebelah kanan Munashiri, suruh pelayanmu menunggu di luar!"
 
 Ah Luo melihat Permaisuri Munashiri sedang duduk di kursinya dengan kurang nyaman, tampak belum terbiasa menghadapi tatapan kritis para anggota Majelis. Ia sebelumnya tak pernah menghadiri acara semacam ini. Tampaknya Toghon Temur sengaja menghadirkannya untuk menggantikan posisi Qi Shengniang, meskipun bagi Ah Luo langkah ini tak berfungsi.
@@ -295,8 +295,6 @@ He Shuo bangkit dari tempat duduknya, memberi hormat, berkata dengan tenang, "*B
 Saat itu, Ayushiridara yang duduk di sebelah kanan dua kolom Majelis, tampak ingin mengatakan sesuatu, tetapi Toghon membungkamnya dengan isyarat tangan, kembali beralih ke sidang majelisnya, berkata dengan nada bosan, "Tak perlu diperpanjang lagi, Aku lelah, kita lanjutkan besok!"
 
 Ia tersenyum sambil menggandeng tangan Rut, berbalik, meninggalkan ruangan itu diikuti oleh rombongan kasimnya.
-
----
 
 Setelah ia pergi, perlahan-lahan para anggota Majelis membubarkan diri sambil terus berbisik-bisik di antara mereka sendiri. Munashiri mendekati Ah Luo, berbisik, "Qi Huanghou sangat parah, kami tidak tahu lagi bagaimana harus menghadapinya..."
 

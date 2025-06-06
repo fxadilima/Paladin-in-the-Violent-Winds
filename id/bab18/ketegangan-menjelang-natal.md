@@ -1,4 +1,7 @@
 # Bab 18
+
+*Okay, now let us review the last part from the start:*
+
 ## *Dadu, Desember 1366: Natal Di Istana*
 
 Setelah berunding beberapa hari, Ah Luo, Munashiri dan Ayushiridara mencapai kesepakatan tentang bagaimana mereka akan menampilkan situasi di hadapan semua orang. Surat yang dibaca Ah Xiu dan Xiao Zhao di Ningxia itu dikirimkan sebelum kesepakattan ini tercapai.
@@ -69,8 +72,6 @@ Alessandra sedang membayangkan penampilan ayahnya jika memiliki jenggot sepanjan
 
 ---
 
-*The following concurrent event happened while the emperor meets Zhang Wuji:*
-
 Sementara Ayushiridara memulai pertemuan keluarga mereka dengan ayahnya, di ruangan pribadinya sendiri, Qi Shengniang sama sekali tidak menjawab ketika terdengar ketukan di pintu. Seperti yang sementara ini sudah biasa baginya, pintu itu kemudian terbuka, tetapi yang kemudian muncul sama ternyata bukan pelayan pribadinya, Chunhua. Ia segera terkejut ketika mengenali wajah Dongfang Yuxian! Tetapi keterkejutan itu hanya sedetik. Berikutnya ia tampak kembali tidak bergairah, meskipun dalam hati sedang berpikir, "Apa yang dilakukan bocah ini di istana? Siapa yang membawanya masuk?"
 
 Menundukkan kepala, ia hanya melihat sesosok banyangan wanita lain masuk di belakang Dongfang Yuxian. Ia lalu mengalihkan pandangannya ke jendela. Kemungkinan besar yang masuk hanya Munashiri, meskipun ia tidak mengerti bagaimana Dongfang Yuxian bisa masuk ke isana dan bertemu dengan Munashiri. Ah Xiu sudah pasti tidak akan membiarkan tindakan semacam ini.
@@ -82,8 +83,6 @@ Aroma makanan itu mengusik penciuman Qi Shengniang. Ia merasa sangat lapar, teta
 Tiba-tiba telinganya mendengar suara wanita, sekarang tentu saja sudah agak berubah. Rasanya sudah tiga puluh tahun ia tidak mendengar suara ini. Wanita itu berkata dengan kasar, "Bocah tengik, kau bisa membohongi orang lain, kau kira bisa menipuku?"
 
 Secara naluriah, tak mampu dikendalikannya, Qi Shengniang menoleh, berseru, "*Shijie*!" dan melihat sosok Tajkis berdiri di hadapannya, masih sangat cantik seperti dulu, meskipun, tentu saja, jauh lebih tua, seperti mereka semua. Matanya gelapnya kebiruan, rambut hitamnya yang ikal, kulitnya yang putih bersih sehalus pualam, hidungnya yang mancung, semuanya tampak sama!
-
----
 
 Menyadari sandiwaranya dibongkar Tajkis dengan begitu mudahnya, ia lalu mendesah, tertawa kering, berkata, "Berikan *zongzi* itu!" Menatap Tajkis, ia berkata sambil menunggu Dongfang Yuxian menyiapkan *zongzi*, "*Xiaomei* mana berani menipu Shijie?" Ia bangkit berdiri, memeluk Tajkis erat-erat dan mencium pipinya. Sejenak keduanya larut dalam kenangan indah masa lalu.
 
@@ -99,8 +98,6 @@ Qi Shengniang mendesah, menerima piring berisi *Zongzi* yang sudah dikupas dari 
 
 "Oh, anak Ah Xiu yang punya banyak nama panggilan itu ya?" kata Qi Shengniang, tersenyum. Dengan cepat ia menghabiskan makanan itu, lalu berkata, "Ambilkan satu lagi." Menjawab Tajkis, ia berkata, "Li Siqi mengacaukan rencanaku. Anak bodoh itu, dan Wang Baobao, seharusnya mengabaikannya, langsung masuk ke Dadu, maka semuanya akan beres! Sial! Sekarang aku harus pakai cara lain untuk memaksa Huang Shang pergi dari sini."
 
----
-
 Tertawa ringan, Tajkis berkata, "Sudah kuduga, jadi sekarang kau mau apa? Semua orang ada di sini, kurasa ini bukan terlalu buruk. Melihat Rut, Huang Shang langsung menyukainya, membungkam semua orang."
 
 "Membungkam apa?" kata Qi Shengniang, "Itu hanya sementara, karena mereka harus bertanya, sudah sewajarnya. Menurutku, biarkan mereka semua berperang sendiri, kita pergi dari sini! Mereka berani menuduhku memaksa Huang Shang mundur, karena itu sekarang aku sungguh-sungguh akan melaksanakannya! Mereka mau apa? Aku jadi ingin tahu." Lalu ia teringat sesuatu, dan tampak berduka. "Ini semua akhirnya membuat Bayan meninggal... salahku..." Ia menggeleng-gelengkan kepalanya, melanjutkan dengan sedih, "Sekarang Ah Li pasti salah paham. Waktu itu aku mengatakan sesuatu... sebenarnya aku ingin bilang supaya mereka memakaikan baju yang lebih pantas bagi Bayan. Setelah kupikir-pikir, kata-kataku pasti terdengar seperti sedang menghina Bayan di telinga Ah Li..."
@@ -111,8 +108,6 @@ Tertawa ringan, Tajkis berkata, "Sudah kuduga, jadi sekarang kau mau apa? Semua 
 makan *zongzi* yang diberikan Dongfang Yuxian dengan tenang. "Hmmm... masakan Zhiruo semuanya enak..."
 
 ---
-
-*Updating Zhu Yuanhzhang's progress and forshadowing Han Lin'er's fate:*
 
 Kabar tentang perkembangan di selatan selalu mereka terima dari Kaifeng, dikirimkan melalui jaringan burung merpati Xiao Liang, yang menitipkannya kepada putrinya, Chunhua, pelayan pribadi Qi Shengniang. Gadis ini lalu menyampaikannya kepada Ah Luo. Chunhua juga tidak tahu tentang keadaan Qi Shengniang yang sebenarnya.
 
@@ -128,7 +123,4 @@ Kening Zhou Zhiruo berkerut. "Kau yakin Jiujiu mau membantu?"
 
 
 ---
-
-"Ming Cult Internal Coordination: The discussion about Yin Daxia keeping an eye on Chuzhou and the reliance on Wu Zhanglao to send letters to Jiujiu (Yin Tianzheng, the White-Browed Eagle King) demonstrates the Ming Cult's extensive network and their attempts to manage the complex political landscape."
-- Yin Daxia here is Yin Yewang, Yin Tianzhang's son, Zhang Wuji's maternal uncle. Yin Tianzheng has already died. Beside, calling Yin Tianzheng 'Jiujiu' is disrespectful for someone like Zhao Min and Zhou Zhiruo, as Yin Tianzhneg is their husband's maternal grandfather!
 
