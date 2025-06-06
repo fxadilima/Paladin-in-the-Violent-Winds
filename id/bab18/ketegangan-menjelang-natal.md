@@ -119,8 +119,33 @@ Murong Bing melaporkan bahwa saat ini pasukan Zhu Yuanzhang telah mengepung Suzh
 
 Kening Zhou Zhiruo berkerut. "Kau yakin Jiujiu mau membantu?"
 
-"Memang tidak teralu meyakinkan, tapi daripada sama sekali tidak ada usaha?" kata Zhao Min.
-
+"Memang tidak terlalu meyakinkan, tapi daripada sama sekali tidak ada usaha?" kata Zhao Min.
 
 ---
+
+*Add more religious nuances to the scene:*
+
+Karena Kaisar Toghon Temur adalah penganut Buddha Tibet Karma Kagyu, maka perayaan Natal di dalam istana terasa tidak biasa. Namun begitu, kali ini mereka tetap bisa merayakannya secara sederhana di harem, karena Zhou Zhiruo hadir di situ. Ia mengumpulkan anak-anaknya di ruangan yang disediakan bagi mereka, dan mengajak mereka berdoa bagi perdamaian dan keselamatan semua orang di situ.
+
+Tak banyak yang mengikuti acara kecil itu. Namun begitu, kali ini Kaisar Toghon Temur secara mengejutkan hadir di situ, mendudukkan Rut di pangkuannya, ikut berlutut di dekat pohon cemara yang dipotong Zhou Zhiruo untuk melambangkan perayaan itu. Avraham berlutut di sebelah kanannya. Kasim He dan Kasim Kim ikut hadir bersama Toghon Temur.
+
+Aroma tipis dari pohon cemara itu mengusik indera penciuman mereka. Lilin-lilin dinyalakan oleh semua orang yang hadir, mengikuti Zhou Zhiruo dan anak-anaknya. Cahaya lilin menghangatkan ruangan dalam cuaca musim dingin itu. Suara cekikikan Rut terdengar mirip alunan musik yang indah, menghias kesederhanaan malam Natal mereka, seolah hadirnya bayi Yesus di tengah keluarga kecil Zhou Zhiruo. "*Niang*, *Hai'er* juga ingin menyalakan lilin," kata Rut.
+
+Toghon mengambil dua batang lilin kecil yang disodorkan Kasim He. "Ini, kau pasang sendiri. *Huang Yeye* juga menitipkan satu di tanganmu."
+
+Karena kehadiran Toghon dan kedua kasim itu, para selir lainnya ikut hadir, memenuhi ruangan yang tak terlalu besar itu. Mereka semua tahu bahwa ibu kandung Kubilai Khan, Sorghaghtani Beki, adalah seorang penganut Kristen dari Gereja Timur yang taat. Dalam pandangan Toghon Temur saat itu, Zhou Zhiruo terlihat seperti leluhurnya, Sorghaghtani Beki. Tanpa sengaja ia mewujuskan harapan ibu kandung Zhao Min, Li Furen, yang saat ini tinggal di Ganzhou bersama dua orang anak laki-laki Zhang Wuji lainnya.
+
+Mereka semua mengikuti acara kecil itu dengan khidmat, menundukkan kepala mereka mengikuti doa yang dibacakan Zhou Zhiruo, "Bagi semua orang... Ya Tuhan, semoga kami boleh menikmati perdamaian dan ketenangan, seperti ketika Kau menghadirkan Yesus di Nazaret saat itu. Sebab Dialah pengantara kami, kini dan sepanjang segala masa..."
+
+Alessandra dan adik-adiknya menyambut doa ibu mereka, "Kabulkanlah doa kami, Ya Tuhan."
+
+---
+
+
+## *Ganzhou, 24 Desember 1366: Malam Natal Yang Teduh*
+
+Li Furen mengajak kedua cucunya bersama Sikong Jiumei dan Lu Xian berkumpul setelah merayakan malam Natal di gereja. Sikong Jiumei merayakannya di Gereja Timur, bersama keluarga Pastor Barsauma. Ia ingin mengumpulkan semua anggota keluarganya sendiri di teras belakang, yang menghadap ke pegunungan luas.
+
+Salju tebal dan cuaca dingin tak menghalangi niatnya. Ia telah merenungkan semua yang terjadi sejak Zhang Wuji mengajak semua anak-anaknya yang lain memasuki istana. Bukan seperti bayangan Sikong Jiumei dan Lu Xian, malam ini Li Furen tampak tenang, tak nampak sedikit pun ketegangan di wajahnya. Beberapa bulan mereka berdua telah mengikuti kesibukan Li Furen menulis surat-surat ke Wudang, Xiangyang dan Ningxia. Di masa-masa itu, pertama kalinya mereka melihat Li Furen dalam keadaan tegang. Namun malam ini, semuanya telah lenyap. Wanita setengah baya yang secara alamiah cantik dan tenang ini telah kembali memperoleh ketenangannya, seolah kegelisahannya sirna tertiup angin. Mereka ingin tahu apa yang terjadi.
+
 

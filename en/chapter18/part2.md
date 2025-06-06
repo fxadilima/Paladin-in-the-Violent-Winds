@@ -72,23 +72,36 @@ Alessandra was imagining her father's appearance if he had a beard as long as Fa
 
 While Ayushiridara began their family meeting with his father, in her own private room, Qi Shengniang didn't respond at all when a knock sounded at her door. As had become her routine, the door then opened, but the figure who appeared was not her personal servant, Chunhua. She was immediately startled when she recognized Dongfang Yuxian's face! But the surprise lasted only a second. Next, she appeared listless again, though inwardly she wondered, "What is this child doing in the palace? Who brought her in?"
 
+---
+
+*Maybe it will make the narrative a little better:*
+
 Lowering her head, she only saw another female figure enter behind Dongfang Yuxian. She then shifted her gaze to the window. Most likely it was just Munashiri who had entered, though she didn't understand how Dongfang Yuxian could have entered the palace and met Munashiri. Ah Xiu certainly wouldn't allow this kind of behavior.
 
-Dongfang Yuxian's voice greeted, "Good afternoon, Aunt Qi! Yuxian has brought the zongzi Aunt Qi likes best, filled with pork, just like they sell in Jiangnan."
+Dongfang Yuxian's voice greeted, "Good afternoon, Aunt Qi! Yuxian has brought the *zongzi*[^zongzi] Aunt Qi likes best, filled with pork, just like they sell in Jiangnan."
+
+[^zongzi]: Zongzi (粽子) are a traditional Chinese food, particularly enjoyed during the Dragon Boat Festival. They are glutinous rice dumplings wrapped in bamboo leaves, filled with various sweet or savory ingredients, and then steamed or boiled. The exact date of the festival varies each year, but it typically falls on the fifth day of the fifth month of the Chinese lunar calendar.
 
 The aroma of the food piqued Qi Shengniang's senses. She felt very hungry, but she felt she couldn't betray her own plan. All of this had been painstakingly worked on for months, or perhaps even over a year? Hardening her heart, she remained silent, looking out the window.
 
-Suddenly, her ears caught a woman's voice, now, of course, somewhat changed. She hadn't heard this voice in thirty years. The woman said gruffly, "You stinky brat, you can fool others, do you think you can fool me?"
+Suddenly, her ears caught a woman's voice, now, of course, somewhat changed. She hadn't heard this voice in thirty years. The woman said gruffly, "You *stinky girl*[^chou-yatou], you can fool others, do you think you can fool me?"
 
-Instinctively, unable to control herself, Qi Shengniang turned, exclaimed, "Shijie (Senior Sister)!" and saw Tajkis standing before her, still as beautiful as ever, though, of course, much older, like all of them. Her dark, bluish eyes, her curly black hair, her fair, smooth skin like alabaster, her aquiline nose—everything looked the same!
+Instinctively, unable to control herself, Qi Shengniang turned, exclaimed, "*Shijie*!" and saw Tajkis standing before her, still as beautiful as ever, though, of course, much older, like all of them. Her dark, bluish eyes, her curly black hair, her fair, smooth skin like alabaster, her aquiline nose—everything looked the same!
 
-Realizing her act had been exposed so easily by Tajkis, she then sighed, laughed dryly, and said, "Give me that zongzi!" Looking at Tajkis, she said while waiting for Dongfang Yuxian to prepare the zongzi, "Xiaomei (Little Sister) would never dare to deceive Shijie (Senior Sister)!" She stood up, hugged Tajkis tightly, and kissed her cheek. For a moment, both were lost in fond memories of the past.
+[^chou-yatou]: Chou Yatou (臭丫頭), although Yatou (丫頭) itself can be translated to "Little girl", but the entire terminology can also means "stinky brat".
+
+[^shijie]: Shijie (師姐), 'Senior Martial Sister'.
+[^xiaomei]: Xiaomei (小妹), 'Little sister'.
+
+Realizing her act had been exposed so easily by Tajkis, she then sighed, laughed dryly, and said, "Give me that zongzi!" Looking at Tajkis, she said while waiting for Dongfang Yuxian to prepare the dumplings, "*Xiaomei*[^xiaomei] would never dare to deceive Shijie!" She stood up, hugged Tajkis tightly, and kissed her cheek. For a moment, both were lost in fond memories of the past.
 
 "Shengniang, you've made everyone anxious," Tajkis said. "What do you want?"
 
 "How did Shijie know all this?" Qi Shengniang asked, pouring out all the questions that instantly flooded her mind. "Besides, how did Shijie suddenly reappear in Zhongyuan? Ah Li suddenly left the palace; where is she now?"
 
-"Ah Li took her child to Ningxia," Tajkis replied. "But Wuji told her to go to Shangdu immediately. Everything is settled there. Er Shige, Wei Yixiao, and Ding Minjun are taking care of everything. You can rest easy now. You haven't answered my question."
+"Ah Li took her child to Ningxia," Tajkis replied. "But Wuji told her to go to Shangdu immediately. Everything is settled there. *Er Shige*[^er-shige], Wei Yixiao, and Ding Minjun are taking care of everything. You can rest easy now. You haven't answered my question."
+
+[^er-shige]: Er Shige (二師哥), "Second Senior Martial Brother", in this case refer to Fan Yao.
 
 Qi Shengniang sighed, accepted the peeled zongzi from Dongfang Yuxian, took a bite, and praised the taste of the food, "Hmm... it has mushrooms, salted egg... this seems like Zhiruo's cooking; is she here?"
 
@@ -102,7 +115,7 @@ Laughing lightly, Tajkis said, "I suspected as much, so now what do you want? Ev
 
 "Never mind, you can talk to Ah Li later," Tajkis said. "I also hurt her that time. Now, more importantly, what's your next plan?"
 
-"For now, don't tell anyone what you see here," Qi Shengniang said, her eyes gleaming, calmly eating the zongzi given by Dongfang Yuxian. "Hmmm... Zhiruo's cooking is all delicious..."
+"For now, don't tell anyone what you see here," Qi Shengniang said, her eyes gleaming, calmly eating the *zongzi* given by Dongfang Yuxian. "Hmmm... Zhiruo's cooking is all delicious..."
 
 ---
 
@@ -120,4 +133,19 @@ Zhou Zhiruo's brow furrowed. "Are you sure *Jiujiu* will help?"
 
 ---
 
+This Christmas Eve was unusually simple for Zhang Wuji's children, yet deeply special for the emperor. Because Emperor Toghon Temur was a follower of Tibetan Karma Kagyu Buddhism, Christmas celebrations in the palace weren't customary. Nevertheless, they managed a small, quiet celebration in the harem this time, thanks to Zhou Zhiruo's presence. She gathered her children in their allotted room, leading them in prayer for peace and the safety of everyone present.
+
+Few attended this small event. However, to everyone's surprise, Emperor Toghon Temur was present, holding Rut on his lap and kneeling beside the fir tree Zhou Zhiruo had cut to symbolize the celebration. Avraham knelt to his right. Eunuch He and Eunuch Kim also attended with Toghon Temur.
+
+The faint aroma of the fir tree piqued their senses. Candles were lit by everyone present, following Zhou Zhiruo and her children. The candlelight warmed the room in the winter cold. Rut's giggling sounded like beautiful music, adorning the simplicity of their Christmas Eve, as if the baby Jesus himself were present in Zhou Zhiruo's small family. "*Niang* (Mama), *Hai'er* (Your child) also wants to light a candle," Rut said.
+
+Toghon took two small candles offered by Eunuch He. "Here, you can light it yourself. *Huang Yeye*[^huang-yeye] is also entrusting one to you."
+
+[^huang-yeye]: Huang Yeye (皇爺爺), "Imperial Grandfather".
+
+Due to the unexpected presence of Toghon and his two eunuchs, other concubines also attended, filling the not-so-large room. They all knew that Kublai Khan's birth mother, Sorghaghtani Beki, had been a devout Christian of the Eastern Church. In Toghon Temur's eyes at that moment, Zhou Zhiruo appeared much like his esteemed ancestor, Sorghaghtani Beki. Unbeknownst to him, he was inadvertently fulfilling the long-held hope of Zhao Min's birth mother, Lady Li, who currently resided in Ganzhou with Zhang Wuji's two other sons.
+
+They all devoutly followed the small ceremony, bowing their heads in unison with Zhou Zhiruo's prayer: "For all people... O God, may we enjoy peace and tranquility, just as You brought forth Jesus in Nazareth at that time. For He is our mediator, now and forevermore..."
+
+Alessandra and her siblings responded to their mother's prayer, "Grant our prayer, O God."
 
