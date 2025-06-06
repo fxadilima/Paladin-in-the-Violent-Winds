@@ -118,9 +118,6 @@ Tetapi Zhao Min masih ragu, bergumam, "Bagaimana caranya kita bisa masuk ke ista
 
 Ah Luo berkata dengan tenang, "Kau akan heran." Tanpa keraguan, ia menoleh kepada Dongfang Yuxian. "Yuxian, kau juga harus ikut kali ini. Kita akan masuk ke istana dan menguasainya, lalu keluar lagi setelah beres. Biarkan setan-setan yang ingin berkuasa yang duduk di situ."
 
----
-
-*Zhang Wuji and his family's departure to Dadu in a very relaxed manner, despite the warring states everywhere:*
 
 ## *Oktober 1366: Perjalanan Ke Istana*
 
@@ -140,9 +137,6 @@ Zhao Min bertanya, "Ada kabar dari Murong Bing?"
 
 "Bagus," kata Zhou Zhiruo, "Suruh anak buah Zeng Zhanglao mengikuti kami di sepanjang jalan. Kami perlu mengirim berita ke segala tempat."
 
----
-
-*For now, we will only have Zhou Zhiruo's letter, and  hilarious martial events:*
 
 Dengan cepat, menggunakan peralatan tulis di dalam kereta, Zhou Zhiruo menulis sepucuk surat pendek kepada Ma Xiuying, yang hanya mengandung sebaris kalimat, "Harap perhatikan keselamatan Han Lin'er." Ia menandatangani surat itu dengan namanya sendiri dan Zhao Min. Menyerahkan surat itu kepada Elbeg, ia berkata singkat, "Kirim segera ke Yingtian!"
 
@@ -165,8 +159,6 @@ Sambil menyeringai lebar, Avraham meraba busurnya, memastikan benda itu masih te
 Dengan penuh semangat, Matteo berkata, "Laolao, ayo kita pergi!"
 
 ---
-
-*The comeback of Jinhua Popo this time is also the comeback of Ming Jiao's Purple-Robe Dragon King:*
 
 Desa yang dimaksud itu terletak sekitar lima *li* di luar kota Qufu. Sejak era di mana Guo Jing hidup, sebenarnya ada dua orang keturunan Konfusius yang memegang gelar sebagai 'Yansheng Gong', akibat kebencian terhadap suku Jurchen. Saat itu, Kong Duanyou yang memegang gelar Yansheng Gong melarikan diri ke selatan bersama calon Kaisar Gaozong, dan tinggal di Zhejiang, sementara pemerintahan Dinasti Jin yang baru terbentuk di utara menunjuk adiknya, Kong Duancao, sebagai Yansheng Gong di Qufu.
 
@@ -223,8 +215,6 @@ Kini Jinhua Popo berdiri di hadapan mereka, berkata dengan suara serak, "Jangan 
 Ah Luo melompat turun dari atas pohon di sebelah barat sambil membawa Avraham. Matteo dan Francesco tertawa terbahak-bahak, saling menepuk telapak tangan. "Lumayan! Laolao, bagaimana dengan barang-barang ini?"
 
 "Antar semuanya ke rumah Kepala Desa," jawab Tajkis.
-
----
 
 ## *Dadu, November 1366: Kedatangan Putri Yi An*
 
