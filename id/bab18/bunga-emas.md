@@ -15,7 +15,7 @@ Yang Buhui, perlahan-lahan mulai menyadari, gadis itu tentu saja bukan Yin Li ke
 
 Zhao Min sangat heran, berusaha menebak-nebak, dan gagal.
 
-"Jinhua Popo?" seru Yang Buhui, nyaris tak percaya. Ia sudah mendengar dari Zhang Wuji semua cerita yang mereka alami di Pulau Ular. Xiao Zhao sebelumnya adalah pelayannya, tetapi ternyata dia adalah puri Jinhua Popo. Tetapi jelas sekali sekarang Xiao Zhao sudah menkah dengan Zhang Wuji, bahkan sudah punya dua orang anak. Bagaimana Jinhua Popo masih sama seperti dulu? Lalu gadis itu siapa?
+"Jinhua Popo?" seru Yang Buhui, nyaris tak percaya. Ia sudah mendengar dari Zhang Wuji semua cerita yang mereka alami di Pulau Ular. Xiao Zhao sebelumnya adalah pelayannya, tetapi ternyata dia adalah putri Jinhua Popo. Tetapi jelas sekali sekarang Xiao Zhao sudah menikah dengan Zhang Wuji, bahkan sudah punya dua orang anak. Bagaimana Jinhua Popo masih sama seperti dulu? Lalu gadis itu siapa?
 
 Zhang Wuji tentu saja sudah tahu bahwa lontaran bunga-bunga emas itu sama sekali tidak bermaksud mencelakai seorang pun. Ia hanya tersenyum tipis, tidak mengatakan apa-apa.
 
