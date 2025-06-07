@@ -1,8 +1,16 @@
+*Okay, let us review the complete README:*
+
 # Ksatria Di Tengah Badai
 
 Cerita ini disusun berdasarkan karakter-karakter di dalam karya Jin Yong (Louis Cha), yang berjudul asli 'Yitian Tulong Ji'[^judul-asli] atau dalam bahasa Inggris 'The Heavenly Sword and the Dragon Slaying Sabre', dengan memakai gagasan di dalam *event* yang tidak dieksplorasi Jin Yong sendiri.
 
 [^judul-asli]: Yitian Tulong Ji (倚天屠龍記), biasa diterjemahkan ke dalam cerita dalam bahasa Indonesia menjadi 'Kisah Pedang Langit dan Golok Pembunuh Naga'. Namun begitu, sebenarnya rangkaian lima karakter ini mengandung makna yang jauh lebih dalam. 'Yitian' (倚天) bisa bermakna 'Kehendak Surga' atau dalam pengertian jaman kuno 'Kehendak Langit'. Sedangkan 'Tulong' (屠龍) bermakna 'Menyembelih Naga', Ji (記) sendiri adalah 'Kisah' atau bisa juga 'Legenda'. Dengan demikian, kita hanya mendapatkan dua istilah puitis berbau mitos, 'Menyembelih Naga dengan mengikuti Kehendak Surga'. Padahal, di sepanjang sejarah maupun cerita rakyat Tiongkok jaman kuno, 'Naga' selalu dihubung-hubungkan dengan Kaisar yang sedang berkuasa, atau tahtanya.
+
+Merenungkan makna judul asli itu secara lebih mendalam, sebenarnya tak ada dua karakter penting, 'Pedang' (Jian 劍) maupun 'Golok' (Dao 刀) dalam judul itu, karena hal ini memang, dalam narasi Jin Yong sendiri, timbul dari aneka macam cerita rakyat yang berkembang saat itu.
+
+Judul dalam bahasa Indonesia maupun bahasa Inggris itu muncul dari syair yang disukai masyarakat di dalam cerita itu sendiri, dan dihubungkan dengan munculnya dua senjata pusaka 'Yitian Jian' (Pedang Langit atau Pedang Surga) dan 'Tulong Dao' (Golong Pembunuh/Penyembelih Naga).
+
+Syair itu sendiri akan sering dikutip Zhang Wuji di sepanjang cerita.
 
 ## Mengupas Cerita Asli Lebih Dalam
 
@@ -36,5 +44,8 @@ Cerita dalam karya Jin Yong di bagian ini terasa agak aneh:
     - Permaisuri Qi, 'Ki' atau 'Gi' adalah seorang wanita keturunan Goryeo, lahir di Haengju, yang digambarkan sangat cantik, sehingga Kaisar Toghon Temur tergila-gila, dan secara kontinyu berusaha menjadikannya 'Permaisuri', bukan hanya sekedar 'Selir' biasa. Jin Yong mengabaikan hal yang sangat menarik ini. Sebaliknya, fakta sejarah ini kita ekplorasi sedalam-dalamnya. Permaisuri Qi dilahirkan pada tahun 1315, pada saat ini usianya belum mencapai 40 tahun!
     - Permaisuri Bayan dikenal sebagai seorang wanita sederhana, yang bahkan tak pernh mengenakan pakaian mewah, tetapi Jin Yong menggambarkan keduanya sebagai '...bundled inside robes inlaid with pearls, jade and precious jewels'? Cerita kita akan menggambarkan keagungan pribadi Permaisuri Bayan, menggabungkannya dengan karakter wanita yang 'dibuang' Jin Yong, berakhir sebagai tak lebih dari 'gadis sinting' — Yin Li.
 
+9. Manikeisme yang menjadi nuansa utama cerita, di berbagai tempat, sesuai dengan naturnya, mengalami penyesuaian untuk membuatnya bisa diterima masyarakat setempat. Hal ini bukan sesederhana dan sedangkal yang dituliskan oleh Jin Yong, menjadi sebuah gerakan untuk *mengusir orang barbar*. Di era Dinasti Yuan, adalah **Peng Yingyu**, seorang *tokoh sejarah nyata*, yang mengawali gerakan pemberontakan itu, dengan ajarannya, yang tadinya tidak mengandung kalimat ke arah ini, tetapi secara tersirat sungguh bisa memicu pemberontakan, dan tampaknya Peng Yingyu sendiri membiarkannya, atau bahkan sengaja mendorongnya.
 
-  
+10. Kejanggalan sangat menyolok adalah mengatakan bahwa *Manikeisme Persia* mengajarkan umatnya untuk memilik seorang 'Perawan Suci' sebagai ketua mereka. Sungguh aneh, mengingat Manikeisme sendiri berawal dari pengalaman iman seorang Persia bernama 'Mani', yang *seratus persen laki-laki*. Bagaimana kemudian menjadi ajaran yang mengedepankan seorang wanita sebagai ketua mereka? Hal ini, dalam cerita kita, mengusik hati Xiao Zhao, yang sudah jelas jatuh cinta, dan dicintai, oleh Xhang Wuji!
+
+

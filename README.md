@@ -4,6 +4,8 @@ This story reimagines Jin Yong's (Louis Cha) Yitian Tulong Ji, also known as The
 
 The original Chinese title, Yitian Tulong Ji (倚天屠龍記), carries a profound symbolism: 'Yitian' (Heaven's Will) and 'Tulong' (Slaying the Dragon). Combined, they mean 'Slaying the Dragon by Following Heaven's Will'. In ancient Chinese culture, the 'Dragon' is a direct metaphor for the Emperor or the Imperial Throne. Our tale expands on this prophetic title.
 
+It's worth noting that the popular Indonesian and English titles ("The Heavenly Sword and the Dragon Slaying Sabre" and "Kisah Pedang Langit dan Golok Pembunuh Naga") actually derive from folk tales circulating within Jin Yong's story itself, which eventually became associated with the two mythical weapons, 'Yitian Jian' (Heavenly Sword) and 'Tulong Dao' (Dragon S Slaying Sabre). Interestingly, the characters for 'Sword' (劍 - Jian) and 'Sabre' (刀 - Dao) aren't explicitly in the original title, reflecting their origin in these evolving legends. This very verse is frequently quoted by Zhang Wuji throughout the narrative.
+
 
 ## Unraveling the Original Narrative
 
@@ -36,4 +38,11 @@ However, certain aspects of Jin Yong's narrative in this section always felt a b
     - **Empress Qi's True Character**: Empress Qi, or 'Ki' / 'Gi,' was a woman of Goryeo (Korean) descent, born in Haengju, who was historically described as *extremely beautiful*. Emperor Toghon Temur was so infatuated that he continuously sought to make her a formal 'Empress,' not just a common concubine. Jin Yong completely overlooks this fascinating detail. Conversely, our story delves deeply into this historical fact. Empress Qi was born in 1315 CE, meaning at this point in the narrative, she would not yet be 40 years old!
     - **Empress Bayan's Simplicity**: Empress Bayan was known historically as a simple woman who never even wore luxurious clothes. Yet, Jin Yong describes both empresses as "*...bundled inside robes inlaid with pearls, jade and precious jewels*"? Our story will portray the personal grandeur of Empress Bayan, merging it with the character of a woman 'discarded' by Jin Yong, ending up as nothing more than a 'crazy girl' — **Yin Li**.
 
+9. *Manichaeism*: Beyond Simple Rebellion: Manichaeism, a central nuance of the original story, underwent various adaptations in different regions to gain local acceptance. This was not as simplistic or shallow as Jin Yong portrayed it—merely a movement to expel the barbarians. In the Yuan Dynasty era, **Peng Yingyu**, a real historical figure, initiated this rebellion. His teachings, while not explicitly containing such rebellious phrases, implicitly carried the potential to incite revolt, and it appears Peng Yingyu himself either allowed or intentionally encouraged this interpretation.
 
+10. *The "Holy Maiden" Anomaly in Manichaeism*: A glaring inconsistency in Jin Yong's narrative is the assertion that Persian Manichaeism taught its followers to have a 'Holy Maiden' as their leader. This is particularly strange, considering Manichaeism itself originated from the spiritual experiences of a Persian named 'Mani,' who was one hundred percent male. How, then, could it evolve into a doctrine that prioritizes a woman as its leader? This specific incongruity, in our story, deeply troubles Xiao Zhao, who is clearly in love with, and loved by, Zhang Wuji!
+
+
+## Why Read Paladin in the Violent Winds?
+
+If you're a fan of Jin Yong's universe, interested in a more historically grounded and nuanced portrayal of the Yuan Dynasty, or simply enjoy a story that dares to fill in the blanks and challenge established narratives, then Paladin in the Violent Winds is for you. We aim to honor the spirit of the original while enriching its tapestry with historical depth, character consistency, and a fresh perspective on a turbulent era.
