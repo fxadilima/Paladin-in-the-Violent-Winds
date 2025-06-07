@@ -4,9 +4,7 @@ Cerita ini disusun berdasarkan karakter-karakter di dalam karya Jin Yong (Louis 
 
 [^judul-asli]: Yitian Tulong Ji (倚天屠龍記), biasa diterjemahkan ke dalam cerita dalam bahasa Indonesia menjadi 'Kisah Pedang Langit dan Golok Pembunuh Naga'. Namun begitu, sebenarnya rangkaian lima karakter ini mengandung makna yang jauh lebih dalam. 'Yitian' (倚天) bisa bermakna 'Kehendak Surga' atau dalam pengertian jaman kuno 'Kehendak Langit'. Sedangkan 'Tulong' (屠龍) bermakna 'Menyembelih Naga', Ji (記) sendiri adalah 'Kisah' atau bisa juga 'Legenda'. Dengan demikian, kita hanya mendapatkan dua istilah puitis berbau mitos, 'Menyembelih Naga dengan mengikuti Kehendak Surga'. Padahal, di sepanjang sejarah maupun cerita rakyat Tiongkok jaman kuno, 'Naga' selalu dihubung-hubungkan dengan Kaisar yang sedang berkuasa, atau tahtanya.
 
----
-
-*Even deeper, adding a few more points:*
+## Mengupas Cerita Asli Lebih Dalam
 
 Karakter-karakter pendukung tambahan dan yang disesuaikan dengan ide cerita berawal dari versi asli dalam Bab 34, yang bisa kita temukan dari [terjemahan bahasa Inggris](https://foxswuxia.wordpress.com/condor-trilogy-heaven-sword-dragon-saber/yttlj-chapter-34/) dari para penggemar cerita tersebut.
 
@@ -27,3 +25,16 @@ Cerita dalam karya Jin Yong di bagian ini terasa agak aneh:
 6. Dalam pertemuan pertama itu, seelah menyadari putrinya sendiri, yang saat itu baru berusia tak lebih dari dua belas tahun, ternyata jatuh cinta kepada Zhang Wuji, sewajarnya Chaghan Temur memberikan bimbingan yang jauh lebih mendalam, ketimbang sekedar versi kartun yang ditulis Jin Yong (bisa memicu fanatisme *rasial* yang sangat serius).
 
 
+7. *Gambaran tentang Toghon Temur* barangkali beralasan, "*Zhang Wuji focused his attention to see the Mongolian Emperor. He noticed that the Emperor’s countenance was thin, pallid, and dispirited. In just one glance it was obvious that he indulged in wine. The Crown Prince rode a horse next to the sedan chair.Contrary to his expectations, the Crown Prince actually showed a heroic spirit. He had a gilded long bow, inlaid with jade, on his shoulder; truly fit the image of a Mongolian young hero.*" — tetapi gambaran tentang Ayushiridara di situ agak berlebihan, mengingat Ayushiridara sebenarnya *berusia sama* seperti Han Lin'er, yang dalam narasi Jin Yong itu juga hadir dalam peristiwa yang sama. Mereka berdua dilahirkan pada tahun 1340. Jika Anda menelusuri jalannya peristiwa, maka *event* ini sendiri tak mungkin lebih dari 1353-1354 Masehi, sebelum tewasnya ayah Han Lin'er — Han Shantong. Ini berarti, kemungkinan besar mereka berdua tidak lebih besar dari *remaja 14 tahun*. Yang membuat beberapa pertanyaan lain mulai muncul:
+    
+    - Zhang Wuji, sebagai seorang pemimpin berjiwa lugu dan bersih, selalu mengutamakan belas kasihan, melihat seorang Han Lin'er kecil (13 atau 14 tahun), memaki warga sederhana Dadu dengan nada penuh kebencian sebagai 'Pengkhianat!', karena mereka memuji-muji kaisar yang sedang berkuasa, dan *ia mendukung gagasan tersebut?*
+    - 'Kekejaman' pasukan pengawal Dinasti Yuan diperlihatkan dengan gamblang bahkan seperti kartun, tetapi Jin Yong tidak mengimbanginya dengan [*kekejaman pasukan Hongjin Qiyi*](https://en.wikipedia.org/wiki/Red_Turban_Rebellions#Southern_Red_Turbans) dari selatan terhadap lawan mereka. Menimbulkan bias yang sangat serius bagi para pembaca yang naif.
+    - Para 'pejabat Mongolia' digambarkan sangat korup, sehingga patut digantikan dengan 'dinasti baru', tetapi Jin Yong sama sekali tidak menceritakan betapa korupnya dua 'dinasti' yang baru terbentuk setelah ini. Pada dasarnya, para pemimpin si selatan saling bentrok sendiri, berebut kekuasaan yang masih belum terbentuk dengan sempurna, bahkan tidak saling mendukung!
+
+8. Cerita tentang Dinasti Yuan akan terasa tidak lengkap dan *janggal*, jika orang hanya menonjolkan 'betapa hebatnya suku Han' vs 'betapa buruknya orang-orang Mongolia', sampai-sampai membuat seorang Permaisuri Qi dan Permaisuri Bayan menjadi sekedar 'dua wanita setengah baya bertubuh gemuk', dalam kutipan berikut, "*The Emperor sat on the highest platform, with the two Empresses on either side of him. The Empresses were middle-age fat women, bundled inside robes inlaid with pearls, jade and precious jewels. Needless to say, they glittered with brilliant lights. On their heads, they wore ridiculously strange-looking tall crowns.*", yang bisa ditemukan di halaman 19, jika Anda mencetak tautan di atas menjadi PDF seperti anjuran saya. Sebuah renungan mendadak muncul:
+    
+    - Permaisuri Qi, 'Ki' atau 'Gi' adalah seorang wanita keturunan Goryeo, lahir di Haengju, yang digambarkan sangat cantik, sehingga Kaisar Toghon Temur tergila-gila, dan secara kontinyu berusaha menjadikannya 'Permaisuri', bukan hanya sekedar 'Selir' biasa. Jin Yong mengabaikan hal yang sangat menarik ini. Sebaliknya, fakta sejarah ini kita ekplorasi sedalam-dalamnya. Permaisuri Qi dilahirkan pada tahun 1315, pada saat ini usianya belum mencapai 40 tahun!
+    - Permaisuri Bayan dikenal sebagai seorang wanita sederhana, yang bahkan tak pernh mengenakan pakaian mewah, tetapi Jin Yong menggambarkan keduanya sebagai '...bundled inside robes inlaid with pearls, jade and precious jewels'? Cerita kita akan menggambarkan keagungan pribadi Permaisuri Bayan, menggabungkannya dengan karakter wanita yang 'dibuang' Jin Yong, berakhir sebagai tak lebih dari 'gadis sinting' — Yin Li.
+
+
+  
