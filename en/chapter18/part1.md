@@ -333,3 +333,7 @@ Ah Xiu grew suspicious, as Li Jinming liked to invent funny names. "What name do
 Xiao Zhao laughed. "Don't worry; if you want, from now on, we can talk more often about the ancient figures we prefer if it's a girl. Jacob and Esau's birth mother, known in Persian as Rivka, her name is quite sweet. Or Jacob's beloved wife's name, Raheel. So our children are a bit funny. I was baptized in the Latin Church, but Esther in the Eastern Church. Now, whether this Giovanni or Rivka, they will be baptized in the Latin Church, even though you yourself are a member of the Eastern Church."
 
 
+---
+
+[Next, Part 2: Christmas at the Palace](./part2.md)
+

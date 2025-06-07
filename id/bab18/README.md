@@ -41,3 +41,15 @@ So, since there's no official record about this "Lady, of the Zhang clan (張氏
 
 ---
 
+Let us take a closer look at the upcoming historical events in 1367:
+
+1. January	Red Turban Rebellion: Han Lin'er drowns while crossing the Yangtze
+2. October	Red Turban Rebellion: Zhu Yuanzhang's army under Zhu Liangzi takes Taizhou
+3. 1 October	Red Turban Rebellion: Zhu Yuanzhang takes Suzhou and Zhang Shicheng hangs himself; 2,400 large and small cannons are deployed by the Ming army at the siege of Suzhou.
+4. November	Red Turban Rebellion: Zhu Liangzi takes Wenzhou
+5. 13 November	Red Turban Rebellion: Zhu Yuanzhang issues orders for Xu Da and Chang Yuchun to head north with 250,000 soldiers and Hu Mei, Tang He, and Liao Yongzhong to attack Fujian and Guangdong
+6. December	Red Turban Rebellion: Fang Guozhen surrenders to Zhu Yuanzhang
+7. 28 December	Red Turban Rebellion: Hu Mei's forces take Shaowu
+8. Red Turban Rebellion: Xu Da and Chang Yuchun conquer Jinan
+9. Zhu Yuanzhang reestablishes the imperial examinations
+

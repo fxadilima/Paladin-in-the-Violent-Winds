@@ -6,12 +6,12 @@ Kelahiran anak-anak Zhang Wuji:
 - Avraham (Zhang Ziyang), 25 Mei 1361
 - Rut, 14 Desember 1363
 - Dario, Juli 1364
-- Esther, (harus) 1366
-- Anak Ah Xiu yang ketiga, 1368
+- Esther, Juni 1366
+- Anak Ah Xiu yang ketiga, Maret 1368
 
 Anak-anak Wang Baobao dan Yin Li:
 
-- Wang wei atau Borjigin Chinua, 5 Maret 1364
+- Wang Wei atau Borjigin Chinua, 5 Maret 1364
 - Wan Jun (untuk sementara alias belum diketahui), 1366
 
 

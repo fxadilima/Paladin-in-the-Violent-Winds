@@ -204,4 +204,43 @@ Saat Zhang Wuji membetulkan letak topi hitamnya yang tinggi, Ayushiridara menaha
 
 ---
 
+Ayushiridara tertawa ketika mereka meninggalkan kedai itu, berkuda santai kembali ke istana. "*Dage*, ucapanmu tadi bisa membuat alis Shuobude dan istriku naik. Kau menirukan sikap mereka untuk bercanda."
+
+"Tapi peringatanku tadi serius," kata Zhang Wuji, "He Zhen jelas bermaksud membantu Chen Youding, tapi Guangdong bukan terlalu dekat jika dia ingin menyerang Zhu Yuanzhang atau Zhang Shicheng. Pasukan mereka juga belum tentu menang. Pada dasarnya saat ini semua orang di luar kubu Zhu Yuanzhang dan Zhang Shicheng hanya ingin mempertahankan daerah masing-masing. Urusan 'sepatu' itu hanya untuk mengingatkannya."
+
+Tiba-tiba ia memberi isyarat, menoleh ke belakang mereka, dan melihat seorang pria bertubuh besar sedang mendatangi mereka di atas punggung kudanya. Ia berkata dengan nada rendah, "Tampaknya Naghachu ini sangat menarik."
+
+Di luar dugaan, Naghachu menyapa dengan ramah, "Taizi!" lalu mengulurkan tangan kanannya untuk menjabat tangan Zhang Wuji, "Gavaka *Xiansheng*, aku hanya ingin mengucapkan *Selamat*[^kuaile]! Kurasa ini tidak salah, kan?"
+
+"Tentu saja tidak salah," jawab Zhang Wuji ramah. "*Kuaile, kuaile*!" Dalam hati merasa agak heran, rupanya orang ini sungguh-sungguh mengira sikapnya adalah seperti Pastor Li Jinming yang suka bercanda dengan mencampuradukkan segala ucapan para pemimpin agama, dan menganggap dirinya adalah seorang penatua atau bahkan Pastor Gereja Timur.
+
+[^kuaile]: Kuaile (快樂), "Selamat". Di era itu memang tidak ada aturan resmi untuk mengucapkan 'Selamat Natal', karena agama Kristen sendiri tak pernah menjadi mayoritas, jadi hanya sekesar ucapan selamat yang paling umum.
+
+Naghachu segera beralih ke topik yang ingin diungkapkannya, "*Taizi*, Zaixia hanya ingin menyampaikan sesuatu yang kebetulan Zaixia dengar — bisa jadi penting, tapi bisa jadi sampah."
+
+"Silakan Xiansheng bicara," kata Ayushiridara.
+
+---
+
+Berdehem, Naghachu berkata dengan hati-hati, "Orang yang dianggap 'Huang Shang' oleh orang-orang selatan itu punya hobi berlayar di sungai Yangtze, mungkin hanya sekedar melancong atau menghilangkan kebosanannya. Tapi jika ini *dimanfaatkan pihak lain*, lalu..." ia kembali berdehem, agak keras, "lalu... dia sedang sial, dan kapalnya *tenggelam*, bukankah salah satu 'raja' selatan ini akan punya peluang untuk naik — menyerang utara?"
+
+Zhang Wuji dan Ayushiridara saling berpandangan, agak terkejut. "Lalu, Xiansheng punya cara untuk menolongnya?"
+
+"Menolong sih tidak berani," kata Naghachu merendah, "Zaixia hanya punya sedikit pengetahuan dan orang yang bisa dikirim untuk mencegah hal ini... jika *Taizi* dan Gavaka Xiansheng beranggapan perlu."
+
+Berpikir sejenak, dan melihat isyarat mata Zhang Wuji, Ayushiridara kemudian berkata singkat, "Ajukan usulan ini dalam Sidang Majelis, kita akan membahasnya di sana."
+
+Mendengar hal ini, Naghachu tampak gembira, berpamitan, lalu memutar kudanya untuk meninggalkan kedua orang itu.
+
+"Hm," kata Zhang Wuji. "Menarik sekali. Tampaknya orang ini sengaja ingin menantang orang yang membebaskannya."
+
+---
+
+Tanpa setahu Zhang Wuji maupun Ayushiridara, di malam yang sama, Yin Yewang berangkat dari Hangzhou menuju ke Yingtian. Di benaknya hanya ada satu tujuan, membawa lari Han Lin'er ke tempat lain. Surat Murong Bing telah sampai ke tangannya. Di lembaran itu hanya ada satu kalimat, "Han Lin'er dalam bahaya."
+
+"Anak bodoh ini sekarang pasti sudah sadar, dirinya hanya mainan bagi *bajingan-bajingan* selatan ini," pikirnya. "Tapi bagaimana dia bisa melepaskan diri kallau tidak dibantu? Lepas dari mulut harimau, jatuh ke mulut buaya. Hanya ada satu cara untuk menyelamatkannya — *membunuhnya*!"
+
+---
+
+[Berikutnya, Bagian 3: Menyelamatkan Yang Mulia, Membunuhnya](./menyelamatkan-dan-membunuhnya.md)
 

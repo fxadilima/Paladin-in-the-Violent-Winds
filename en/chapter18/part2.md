@@ -215,4 +215,43 @@ As Zhang Wuji adjusted his tall black hat, Ayushiridara suppressed a smile, sile
 
 "Oh, I see...?" He Zhen mumbled, lost in thought as Zhang Wuji and Ayushiridara bid farewell, leaving money to pay for all their food and drinks. Watching Zhang Wuji's back and his tall black hat, he wondered inwardly, "This Quanzhou man doesn't seem to hold a grudge against Chen Youding, but who knows...? It seems Ayushiridara has found a new advisor... Does he now want to seize his father's throne?"
 
+---
+
+Ayushiridara laughed as they left the shop, riding casually back to the palace. "Dage (older brother), your words just now could make Shuobude and my wife raise their eyebrows. You were mimicking their mannerisms to joke."
+
+"But my warning just now was serious," Zhang Wuji said. "He Zhen clearly intends to help Chen Youding, but Guangdong isn't too close if he wants to attack Zhu Yuanzhang or Zhang Shicheng. Their forces aren't guaranteed to win either. Basically, right now everyone outside Zhu Yuanzhang and Zhang Shicheng's factions just wants to defend their own territories. That 'shoe' analogy was just to remind him."
+
+Suddenly, he signaled, looking back over their shoulders, and saw a large man approaching them on horseback. He said in a low voice, "This Naghachu seems very interesting."
+
+Unexpectedly, Naghachu greeted them warmly, "Taizi!" then extended his right hand to shake Zhang Wuji's hand. "Gavaka Xiansheng (Sir), I just wanted to say Kuaile[^kuaile]! I don't think that's wrong, is it?"
+
+"Of course not," Zhang Wuji replied amiably. "Kuaile, kuaile!" He felt a little surprised inwardly; this man truly seemed to think his behavior was like Father Li Jinming, who enjoyed joking by mixing various religious leaders' sayings, and assumed he was an elder or even an Eastern Church Father.
+
+[^kuaile]: Kuaile (快樂), "Happiness" or "Wishing Well." In that era, there were no official rules for saying 'Merry Christmas,' as Christianity was never the majority religion, so it was merely the most common form of well-wishing.
+
+Naghachu immediately shifted to the topic he wished to reveal, "Taizi, Zaixia (this humble one) only wanted to convey something Zaixia happened to overhear — it might be important, but it might also be garbage."
+
+"Please speak, Xiansheng," Ayushiridara said.
+
+Naghachu immediately shifted to the topic he wished to reveal. Clearing his throat, Naghachu said cautiously, "The one whom the southerners consider 'Huang Shang' has a hobby of sailing on the Yangtze River, perhaps just for pleasure or to alleviate boredom. But if this is exploited by others, then..." he cleared his throat again, a bit louder, "then... he has bad luck, and his ship sinks, wouldn't one of these southern 'kings' have a chance to rise—to attack the north?"
+
+Zhang Wuji and Ayushiridara exchanged glances, a little surprised. "Then, *Xiansheng* has a way to help him?"
+
+"I wouldn't dare to say 'help'," Naghachu said humbly. "Zaixia only has a little knowledge and people who can be sent to prevent this... if Taizi and Gavaka Xiansheng deem it necessary."
+
+Thinking for a moment, and seeing Zhang Wuji's eye signal, Ayushiridara then said curtly, "Submit this proposal in the Grand Assembly. We will discuss it there."
+
+Hearing this, Naghachu seemed delighted, bid farewell, then turned his horse to leave the two men.
+
+"Hm," Zhang Wuji said. "Very interesting. It seems this man deliberately wants to challenge the person who freed him."
+
+### Meanwhile, Elsewhere: A Different Plot Unfolds
+
+Unbeknownst to Zhang Wuji and Ayushiridara, on the very same night, Yin Yewang set out from Hangzhou towards Yingtian. In his mind, there was only one goal: to spirit away Han Lin'er to a different location. A letter from Murong Bing had reached his hands. On its sheet, there was only one sentence: "Han Lin'er is in danger."
+
+"This foolish boy must now realize he's merely a plaything for these southern bastards," he thought. "But how can he escape if he's not helped? Out of the tiger's mouth, into the crocodile's jaws. There's only one way to save him — *to kill him*!"
+
+---
+
+[Next, Part 3: Saving His Majesty, Kill Him](./part3.md)
 
