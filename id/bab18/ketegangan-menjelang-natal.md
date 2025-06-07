@@ -1,7 +1,4 @@
 # Bab 18
-
-*Okay, now let us review the last part from the start:*
-
 ## *Dadu, Desember 1366: Natal Di Istana*
 
 Setelah berunding beberapa hari, Ah Luo, Munashiri dan Ayushiridara mencapai kesepakatan tentang bagaimana mereka akan menampilkan situasi di hadapan semua orang. Surat yang dibaca Ah Xiu dan Xiao Zhao di Ningxia itu dikirimkan sebelum kesepakattan ini tercapai.

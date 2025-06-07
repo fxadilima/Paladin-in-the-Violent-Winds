@@ -413,10 +413,6 @@ Dengan segala hormat,
 Liu Bowen
 ```
 
----
-
-*After that, the situation suddenly urgent, a series of events happening fast:*
-
 Setelah ketiga orang itu saling bertukar bacaan mereka masing-masing, surat-surat itu segera beredar dari tangan ke tangan dengan cepat.
 
 Alessandra ikut membaca surat yang dipegang Ah Xiu, meskipun belum memahami terlalu banyak karakter. Melihat dua surat ditandatangani dengan nama 'Ah You', ia segera bertanya, "Mama Xiu, *Shushu* kenapa? Dia ada di mana?"

@@ -132,9 +132,6 @@ Tian Feng memandang temannya, lalu keduanya tertawa terbahak-bahak. "Maksudmu 'o
 
 [^yanluo-wang]: Yanluo Wang (閻羅王), "Raja Neraka".
 
----
-
-*Here's tthe result of Liu Bowen's investigation:*
 
 Akhirnya Liu Bowen tertawa terbahak-bahak, berkata, "Berarti kalian hanya berpura-pura membelot! Sebenarnya kalian masih terus bekerja untuk *juragan* kalian itu."
 
