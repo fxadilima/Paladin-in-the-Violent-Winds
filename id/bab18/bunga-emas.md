@@ -45,7 +45,7 @@ Zhao Min meninju bahu Dongfang Yuxian, agak kesal. "Kau mengejutkan aku!"
 
 Bersama dengan Yin Li selama petualangan mereka memberantas para pejabat yang disusupkan Bolad Temur di Kaifeng, tentu saja Dongfang Yuxian bisa menirukan gerak-geriknya dengan mudah. Ia hanya tersenyum tipis. "Junzhu sebenarnya pasti tahu, hanya soal waktu."
 
-Keempat murid Zhang Sanfeng hanya tersenyum tipis. Mereka memang mendengar peranan ganda Tajkis sebagai Jinhua Popo dan sekaligus Raja Naga Berjubah Ungu[^naga-berjubah-ungu] sebelumnya. Masalah itu bagi mereka sudah sangat lama berlalu, dan mereka sendiri tak pernah punya masalah secara pribadi dengan Tajkis.
+Keempat murid Zhang Sanfeng hanya tersenyum tipis. Mereka memang mendengar peranan ganda Tajkis sebagai Jinhua Popo dan sekaligus Raja Naga Berjubah Ungu[^zi-shan-longwang] sebelumnya. Masalah itu bagi mereka sudah sangat lama berlalu, dan mereka sendiri tak pernah punya masalah secara pribadi dengan Tajkis.
 
 Zhang Sanfeng sendiri hanya pernah mendengar cerita dari Zhang Wuji dan murid-muridnya yang lain. Setelah bertemu langsung dengan Tajkis, ia cukup terkesan. Wanita ini ternyata bukan seperti gambaran yang diceritakan banyak orang sebelum ini. Ia masih bisa memahami mengapa sebelumnya Tajkis menyimpan dendam pribadi kepada Hu Qingniu. Sekarang persoalan itu sudah lama berlalu. Tajkis sekarang ini adalah keluarga mereka sendiri, melalui perkawinan Xiao Zhao dengan Zhang Wuji. Baik sebelumnya maupun sekarang, memang tak ada alasan bagi Wudang untuk bermusuhan dengan Tajkis.
 
@@ -216,9 +216,6 @@ Ah Luo melompat turun dari atas pohon di sebelah barat sambil membawa Avraham. M
 
 "Antar semuanya ke rumah Kepala Desa," jawab Tajkis.
 
----
-
-*Let's review how they enter the palace, concurrent with some event in Ningxia:*
 
 ## *Dadu, November 1366: Kedatangan Putri Yi An*
 
@@ -230,7 +227,7 @@ Sekarang beberapa pengawal yang hadir di situ semakin heran. Mereka tidak tahu k
 
 Rut mengamati pemandangan di sekelilingnya dengan penuh rasa ingin tahu. Kehadiran begitu banyak pengawal bersenjata di istana sedikit pun tidak membuatnya takut. Ia berjalan di sisi Ah Luo sambil berceloteh riang. Mereka berbelok beberapa kali, menyapa banyak kasim dan pelayan, sebelum tiba di perpustakaan.
 
-Seperti sebelumnya, ketika membawa Yin Li keluar dari sini, Ah Luo kembali mengerahkan tenaga dalamnya untuk menggeser rak buku yang berat, memperlihatkan sebah lubang yang tertutup di belakangnya. Ia melongok ke dalam, berkata, "Keluarlah!"
+Seperti sebelumnya, ketika membawa Yin Li keluar dari sini, Ah Luo kembali mengerahkan tenaga dalamnya untuk menggeser rak buku yang berat, memperlihatkan sebuah lubang yang tertutup di belakangnya. Ia melongok ke dalam, berkata, "Keluarlah!"
 
 Berturut-turut, Tajkis, Dongfang Yuxian, Alessandra dan ketiga saudaranya yang lain keluar dari situ. Terakhir, Zhang Wuji dan kedua istrinya keluar dari lubang yang sama. Kemudian Ah Luo kembali menutup lubang itu dengan rak buku.
 
