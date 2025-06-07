@@ -149,3 +149,70 @@ They all devoutly followed the small ceremony, bowing their heads in unison with
 
 Alessandra and her siblings responded to their mother's prayer, "Grant our prayer, O God."
 
+
+## *Ganzhou, December 24, 1366: A Peaceful Christmas Eve*
+
+Lady Li gathered her two grandsons, along with Sikong Jiumei and Lu Xian, on the back patio overlooking the vast mountains, after celebrating Christmas Eve at church. Sikong Jiumei had celebrated at the Eastern Church with Father Barsauma's family. Lady Li wanted to gather all her family members there.
+
+Despite the heavy snow and cold weather, her resolve remained firm. She had been reflecting on everything that had happened since Zhang Wuji took all their other children into the palace. Contrary to Sikong Jiumei and Lu Xian's expectations, Lady Li seemed calm tonight, with not a hint of tension on her face. For months, the two of them had witnessed Lady Li's busy efforts writing letters to Wudang, Xiangyang, and Ningxia. During that period, it was the first time they had seen Lady Li in such a tense state. Yet tonight, all of that had vanished. This naturally beautiful and serene middle-aged woman had regained her composure, as if her worries had vanished with the wind. They were eager to know what had happened.
+
+Before celebrating Christmas at the Latin Church with her two grandsons and Lu Xian, Lady Li had taken them all on a pilgrimage to the Eastern Church, where Kublai Khan's mother, Sorghaghtani Beki, was always honored with a Mass. Sikong Jiumei and Lu Xian had often spoken with Lady Li about Kublai Khan's mother. They knew that in the palace, it would be almost impossible to expect their small family to celebrate Christmas. Since the birth of Zhang Wuji's children, they had never missed a Christmas or Easter celebration, no matter how difficult their circumstances. Now, Sikong Jiumei and Lu Xian wondered inwardly if the other children were currently celebrating Christmas.
+
+Agostin voiced their collective question, remembering his twin brother, he murmured, "Perhaps right now Niang (Mama) and Alessandra are celebrating Christmas in the palace..."
+
+His grandmother turned to him, her eyes shining. "Do you think so? Huang Shang himself is a follower of Karma Kagyu Buddhism; it's almost certain they aren't celebrating Christmas."
+
+Something in Lady Li's tone and demeanor made Sikong Jiumei ask, "But Laolao (Grandma) feels they are celebrating?"
+
+Gazing at the distant, dark mountains in the background of their home, Lady Li seemed to be speaking poetically, "God works in ways completely unimagined by us." She looked at Lorenzo, asking in a somewhat mysterious tone, "Rut is there, Avraham — " then looked at Lu Xian, "and Francesco."
+
+This time, Lu Xian vaguely grasped what was meant. "Rut and Avraham are clearly Huang Shang's own grandchildren, but Francesco..."
+
+"At that time, al-Kamil, the Sultan of Egypt, was fiercely attacked by Christian armies in the Crusades," Lady Li explained contemplatively. "That war was truly a bloodbath, and futile for the Crusaders. Finally, they agreed to a ceasefire. It was during this time that Francis of Assisi and his companions crossed into the Muslim camp, and were brought before the Sultan, staying in his tent for days. You might find it strange, but at that time Francis even preached among those Muslims..."
+
+All the young people before her held their breath. Unable to contain his curiosity, Lorenzo asked, "Then what happened?"
+
+"There are only reports that the Sultan received Francis warmly," Lady Li replied. "They returned unharmed."
+
+As if uniting their hopes with Lady Li's, the two girls and her grandsons immediately made the sign of the cross, knelt devoutly, bowing their heads in silent prayer. Only a single line they eventually uttered together with Lady Li, "Grant our prayer, O God..."
+
+
+## *Dadu, December 25, 1366: Politics in the Dead of Night*
+
+Zhang Wuji and Ayushiridara couldn't join everyone in the imperial harem for Christmas. They spent the time leading up to midnight riding aimlessly, circling the city, passing entertainment venues and wine shops, and even peering into brothels.
+
+A clear memory lingered in Zhang Wuji's mind: last year, on the same Christmas Eve, he had spent time touring Yinchuan and its outskirts in Yinnan, then met Zhao Min in a surprising encounter. Their romantic conversation that night ended with memories of Chaghan Temur, a paternal figure unforgettable to both of them, as if he lived among the people of Ningxia, in churches, mosques, and among all other citizens.
+
+Not feeling like he'd found his father-in-law's spirit amidst the hustle and bustle of Dadu, he invited Ayushiridara to sit at a shop selling Dadu roast duck, chatting casually while drinking wine and enjoying the meal.
+
+Suddenly, Ayushiridara's gaze fixed on a large man who had also stopped by the shop, alone. The plate in front of the man was empty. He was simply enjoying his wine while watching the commotion around him.
+
+"Naghachu," Ayushiridara whispered, nodding towards the man's table. "Zhu Yuanzhang once captured him, but then released him. No idea what he's doing here."
+
+"Oh," Zhang Wuji said, growing interested. He felt something intriguing was about to happen.
+
+Shortly after, Ayushiridara recognized another man, of average build, seemingly a southerner. This man also seemed to recognize him. Walking towards them, a smile spread across his face as he politely greeted, despite knowing Ayushiridara didn't want to be widely recognized, "Taizi (Crown Prince)!"
+
+"He Daren (Sir He)," Ayushiridara said, "Allow me to introduce my good friend — um..."
+
+"Gavaka," Zhang Wuji said curtly, trying his best to imitate the Fujian accent. Inwardly, he thought, "My name is already clearly foreign. A slight slip will surely be excused." From Ayushiridara's words, he knew this person was He Zhen, recently appointed Governor of Guangzhou.
+
+"Ah, Gavaka *Jiaoshi*," He Zhen said cheerfully, his eyes scrutinizing the beard on Zhang Wuji's face with a hint of suspicion. Nevertheless, after clearing his throat, he immediately asked with curiosity, "Jiaoshi perhaps hails from *Quanzhou*...?"
+
+"*Amituofo*," Zhang Wuji said, imitating Shuobude. Then, mimicking his children and Zhou Zhiruo making the sign of the cross, he added, "*Alhamdulillah*, it seems He Daren also...?"
+
+"Oh, no — I'm from Guangzhou," He Zhen said, laughing delightedly, feeling his guess was correct.
+
+Unable to suppress a smile, Ayushiridara covered it by taking a drink of his wine. Accidentally, his eyes glanced towards Naghachu's table, and he found the man looking in their direction.
+
+Ordering another portion of roast duck, they spent time well past midnight joking and chatting about politics with He Zhen. Zhang Wuji eventually concluded that, in some way, this man was still related to He Shuo and his son He Zhang, who had previously been sent by Toghon Temur to kill Bolad Temur.
+
+When He Zhen brought up Fujian and Chen Youding's supposed success in quelling the Persian rebellion in Quanzhou, Zhang Wuji made the sign of the cross and said, "*Astaghfirullah al-Azim*! (I seek forgiveness from God, the Almighty!) Sin... sin... but it also contains *the Will of Allah*, so Laona (this old monk/daoist) has no answer..."
+
+He Zhen became very curious, asking suspiciously, "Jiaoshi (teacher/preacher), soon I myself will be assigned by Huang Shang to support Chen Youding. You... you all... won't oppose Huang Shang's policy, will you?"
+
+As Zhang Wuji adjusted his tall black hat, Ayushiridara suppressed a smile, silently waiting for the answer he would deliver. Clearing his throat while stroking his slowly growing beard, Zhang Wuji said, "He Daren, Laona only wants to show you this..." he took off his oversized shoe, "If Daren wears Laona's shoe, wouldn't Daren look ridiculous before the Grand Assembly? Similarly, if Laona wears Daren's small shoe." He concluded his speech by clasping his hands together, mimicking Shuobude's posture, "Therefore, it's best we wear our own shoes."
+
+"Oh, I see...?" He Zhen mumbled, lost in thought as Zhang Wuji and Ayushiridara bid farewell, leaving money to pay for all their food and drinks. Watching Zhang Wuji's back and his tall black hat, he wondered inwardly, "This Quanzhou man doesn't seem to hold a grudge against Chen Youding, but who knows...? It seems Ayushiridara has found a new advisor... Does he now want to seize his father's throne?"
+
+

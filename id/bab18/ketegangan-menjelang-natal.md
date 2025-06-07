@@ -139,13 +139,72 @@ Mereka semua mengikuti acara kecil itu dengan khidmat, menundukkan kepala mereka
 
 Alessandra dan adik-adiknya menyambut doa ibu mereka, "Kabulkanlah doa kami, Ya Tuhan."
 
----
-
 
 ## *Ganzhou, 24 Desember 1366: Malam Natal Yang Teduh*
 
 Li Furen mengajak kedua cucunya bersama Sikong Jiumei dan Lu Xian berkumpul setelah merayakan malam Natal di gereja. Sikong Jiumei merayakannya di Gereja Timur, bersama keluarga Pastor Barsauma. Ia ingin mengumpulkan semua anggota keluarganya sendiri di teras belakang, yang menghadap ke pegunungan luas.
 
 Salju tebal dan cuaca dingin tak menghalangi niatnya. Ia telah merenungkan semua yang terjadi sejak Zhang Wuji mengajak semua anak-anaknya yang lain memasuki istana. Bukan seperti bayangan Sikong Jiumei dan Lu Xian, malam ini Li Furen tampak tenang, tak nampak sedikit pun ketegangan di wajahnya. Beberapa bulan mereka berdua telah mengikuti kesibukan Li Furen menulis surat-surat ke Wudang, Xiangyang dan Ningxia. Di masa-masa itu, pertama kalinya mereka melihat Li Furen dalam keadaan tegang. Namun malam ini, semuanya telah lenyap. Wanita setengah baya yang secara alamiah cantik dan tenang ini telah kembali memperoleh ketenangannya, seolah kegelisahannya sirna tertiup angin. Mereka ingin tahu apa yang terjadi.
+
+Sebelum merayakan Natal di Gereja Latin bersama kedua cucunya dan Lu Xian, Li Furen mengajak mereka semua berziarah ke Gereja Timur, di mana ibu Kubilai Khan, Sorghaghtani Beki selalu dirayakan sambil mempersembahkan Misa. Sikong Jiumei dan Lu Xian telah sering berbicara tentang ibu Kubilai Khan ini dengan Li Furen. Mereka tahu, di istana yang pastilah sult mengharapkan keluarga kecil mereka akan merayakan Natal. Sejak kelahiran anak-anak Zhang Wuji, boleh dibilang tak pernah mereka melewatkan perayaan Natal atau Paskah, sesulit apa pun keadaan yang mereka alami. Kini Sikong Jiumei dan Lu Xian sedang bertanya-tanya dalam hati, apakah anak-anak yang lain saat ini juga sedang merayakan Natal?
+
+Agostin mewakili pertanyaan mereka semua, teringat akan adik kembarnya, ia bergumam, "Mungkin saat ini *Niang* dan Alessandra sedang merayakan Natal di istana..."
+
+Neneknya berpaling ke arahnya dengan mata bersinar. "Kau pikir begitu? Huang Shang sendiri adalah penganut ajaran Buddha Karma Kagyu, hampir pasti mereka tidak merayakan Natal."
+
+Sesuatu di dalam nada bicara dan sikap Li Furen membuat Sikong Jiumei bertanya, "Tapi Laolao merasa mereka merayakannya?"
+
+Menatap ke arah pegunungan yang jauh dan gelap di latar belakang rumah mereka, Li Furen seolah sedang berpuisi, "Allah melakukan sesuatu dengan cara yang sama sekali tak terpikirkan oleh kita." Ia menatap Lorenzo, bertanya dengan nada agak misterius, "Di sana ada Rut, Avraham — " lalu memandang Lu Xian, "dan *Francesco*."
+
+Kali ini Lu Xian samar-samar menangkap apa yang dimaksud. "Rut dan Avraham sudah jelas adalah cucu Huang Shang sendiri, tetapi Francesco..."
+
+"Waktu itu, al-Kamil, Sultan Mesir, diserang mati-matian oleh tentara Kristen dalam Perang Salib," jelas Li Furen sambil merenung, "Peperangan itu sungguh-sungguh banjir darah, dan *sia-sia* bagi tentara Salib itu. Akhirnya mereka menyepakati gencatan senjata. Di saat-saat inilah, Francesco dari Assisi dan teman-temannya menyeberangi perbatasan dengan kubu Muslim, dan dibawa ke hadapan Sultan, tinggal di kemahnya sampai berhari-hari. Mungkin kalian heran, tapi saat itu Francesco bahkan *berkotbah di tengah-tengah warga Muslim itu*..."
+
+Semua anak muda di hadapannya itu menarik nafas tertahan. Tak dapat menahan rasa penasaran, Lorenzo bertanya, "Lalu, apa yang terjadi?"
+
+"Hanya ada laporan bahwa Sultan menerima kedatangan Francesco dengan ramah," jawab Li Furen, "*Mereka pulang tanpa luka apa pun*."
+
+Seakan menyatukan harapan mereka dengan Li Furen, kedua gadis dan cucu-cucunya itu segera membuat tanda salib, berlutut dengan khidmat, menundukkan kepala mereka dalam doa tanpa suara. Hanya sebaris kalimat yang akhirnya mereka ucapkan bersama-sama dengan Li Furen, "Kabulkanlah doa kami, Ya Tuhan..."
+
+
+## *Dadu, 25 Desember 1366: Politik Di Tengah Malam*
+
+Zhang Wuji dan Ayushiridara tak dapat bergabung dengan semua orang di harem istana. Mereka menghabiskan waktu menjelang tengah malam untuk berkuda tanpa tujuan yang jelas, berkeliling kota, melewati tempat-tempat hiburan malam dan kedai-kedai arak, bahkan sempat melongok di rumah-rumah bordil.
+
+Masih jelas terbayang di benak Zhang Wuji, tahun lalu di malam Natal yang sama, ia menghabiskan waktu berkeliling Yinchuan hingga ke pinggiran Yinnan, lalu bertemu dengan Zhao Min yang mengejutkannya. Obrolan romantis saat itu berakhir dengan kenangan mereka akan Chaghan Temur, sosok ayah yang bagi mereka berdua tak terlupakan sepanjang masa, seolah hidup di tengah masyarakat Ningxia, di gereja-gereja, mesjid dan di antara semua warga lain.
+
+Tak merasa menemukan sosok ayah mertuanya di tengah hiruk-pikuk Dadu ini, ia mengajak Ayushiridara duduk di sebuah kedai yang menjual bebek panggang Dadu, mengobrol santai sambil minum arak dan menikmati hidangan itu.
+
+Tiba-tiba pandangan Ayushiridara terpaku pada sosok seorang pria bertubuh besar yang juga sedang mampir di kedai itu, sendirian. Piring di hadapan pria itu sudah kosong. Ia hanya menikmati araknya sambil memandang keramaian di sekelilingnya.
+
+"Naghachu," bisik Ayushiridara, menggerakkan kepalanya ke arah meja pria itu. "Zhu Yuanzhang pernah menangkapnya, tapi kemudian dibebaskan. Entah apa yang dilakukannya di sini."
+
+"Oh," kata Zhang Wuji, mulai tergerak. Ia merasa sebentar lagi sesuatu yang menarik akan terjadi.
+
+Tak lama kemudian, Ayushiridara kembali mengenali seorang pria lain, bertubuh sedang, tampaknya orang selatan. Kelihatannya pria ini juga mengenalinya. Berjalan ke arah mereka, senyum di wajahnya mengembang, menyapa dengan sopan, meski tahu bahwa Ayushiridara tidak ingin dikenali banyak orang, "Taizi!"
+
+"He *Daren*," kata Ayushiridara, "Kenalkan, ini sahabat baikku — eeh..."
+
+"Gavaka," kata Zhang Wuji singkat, mencoba menirukan logat Fujian dengan sebaik-baiknya. Dalam hati ia berpikir, "Namaku sudah jelas asing. Meleset sedikit tentu akan dimaklumi." Dari kalimat Ayushiridara ia tahu bahwa orang ini adalah He Zhen, yang baru diangkat menjadi Gubernur Guangzhou.
+
+"Ah, Gavaka *Jiaoshi*," kata He Zhen riang, matanya menatap Zhang Wuji, menelusuri berewok di mukanya dengan agak curiga, namun demikian, segera bertanya dengan rasa ingin tahu, setelah berdehem, "*Jiaoshi* mungkin berasal dari *Quanzhou*...?"
+
+"*Amituofo*," kata Zhang Wuji, menirukan Shuobude. Lalu menirukan cara anak-anaknya dan Zhou Zhiruo membuat tanda salib, sambil berkata, "*Alhamdulillah*, tampaknya He Daren juga...?"
+
+"Oh, bukan — aku dari Guangzhou," kata He Zhen, tertawa senang, merasa tebakannya tepat.
+
+Tak dapat menahan senyum, Ayushiridara menutupinya dengan meneguk araknya. Tak sengaja, matanya melirik ke arah meja Naghachu, dan mendapati orang itu sedang melihat ke arah mereka.
+
+Memesan seporsi bebek panggang lagi, mereka menghabiskan waktu hingga lewat tengah malam untuk bercanda dan mengobrol tentang politik dengan He Zhen. Zhang Wuji akhirnya menarik kesimpulan, dengan salah satu cara, orang ini ternyata masih punya hubungan kekeluargaan dengan He Shuo dan anaknya He Zhang, yang diutus Toghon Temur untuk membunuh Bolad Temur sebelumnya.
+
+Ketika He Zhen menyinggung tentang Fujian dan prestasi Chen Youding yang dianggapnya berhasil memadamkan pemberontakan orang-orang Persia di Quanzhou, Zhang Wuji membuat tanda salib, dan berkata, "*Astaghfirullah al-Azim!* Dosa... dosa... tapi itu juga mengandung *Kehendak Allah*, jadi *Laona* tidak punya jawaban..."
+
+He Zhen menjadi sangat penasaran, bertanya dengan curiga, "Jiaoshi, sebentar lagi *aku* sendiri akan ditugaskan Huang Shang untuk mendukung Chen Youding. *Kau*... kalian... tidak akan menentang kebijakan Huang Shang, kan?"
+
+Saat Zhang Wuji membetulkan letak topi hitamnya yang tinggi, Ayushiridara menahan senyum sambil diam-diam menunggu jawaban apa yang akan dilontarkannya. Berdehem sambil mengelus janggutnya yang mulai tumbuh lebih panjang, Zhang Wuji berkata, "He Daren, *Laona* hanya ingin menunjukkan ini..." ia melepas sepatunya yang berukuran besar, "Jika Daren memakai sepatu *Laona* ini, bukankah Daren akan terlihat lucu di hadapan Majelis Agung? Begitu juga jika *Laona* memakai sepatu Daren yang kecil itu." Ia menutup pidatonya sambil merangkapkan kedua tangannya, menirukan sikap Shuobude, "Karena itu, sebaiknya kita memakai sepatu kita masing-masing."
+
+"Oh, begitu...?" gumam He Zhen, termenung ketika Zhang Wuji dan Ayushiridara berpamitan sambil meletakkan uang untung membayar harga makanan dan minuman mereka semua. Mengawasi punggung Zhang Wuji dan topi hitamnya yang tinggi, ia bertanya-tanya dalam hati, "Orang Quanzhou ini kelihatannya tidak punya dendam terhadap Chen Youding, tapi siapa tahu...? Tampaknya Ayushiridara menemukan penasihat baru... Apa sekarang dia ingin menduduki tahta ayahnya?"
+
+---
 
 
