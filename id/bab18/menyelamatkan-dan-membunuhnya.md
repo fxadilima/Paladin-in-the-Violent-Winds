@@ -1,8 +1,4 @@
 # Bab 18
-
-*Naghachu's Deeper Reasoning (Optional for Readers): While the dialogue implies his reasoning, a very subtle internal thought from Ayushiridara or Zhang Wuji immediately after Naghachu's suggestion could explicitly state the logic behind preventing Han Lin'er's demise...*
-- This can be written in the following continuing narrative:
-
 ## *Dadu, 1 Januari 1367: Menyelamatkan Musuh?*
 
 Kaisar Toghon Temur tampak bosan di atas singgasananya. Ia sudah punya rencana untuk mengajak Alessandra dan adik-adiknya berjalan-jalan keliling istana sepanjang hari, lalu menyaksikan ketangkasan mereka menunggang kuda dan memanah. Setelah itu ia ingin memamerkan keahlian bela diri mereka di hadapan para pengawal istana yang saat ini dianggapnya malas. Tetapi suara orang-orang di hadapannya tak kunjung berhenti, membicarakan hal yang sama dari hari ke hari, tanpa jalan keluar yang jelas.
@@ -47,9 +43,6 @@ He Zhen dilarang keluar dari wilayahnya sendiri, sementara Naghachu mendapat tug
 
 ---
 
-*Toghon Temur's Final Tone: After making these decisions, what is Toghon Temur's demeanor? Is he satisfied, returning to his boredom, or does this new strategic direction invigorate him somewhat? A brief concluding action or expression from him could round off the scene.*
-- Actually, this time, Toghon Temur was thinking about something else:
-
 Keluar dari ruang sidang itu, Toghon Temur dan Kasim He berjalan ke arah tempat latihan memanah. Di sana ia melihat Alessandra dan adik-adiknya sedang berlatih. Ia bertanya kepada kasim di sebelahnya, "Kau pernah mencintai musuhmu?"
 
 Menjadi heran, Kasim He hanya menggeleng, berkata dengan sungguh-sungguh, "Hambamu yang bodoh tidak mengerti apa yang *Bixia* maksud."
@@ -84,9 +77,6 @@ Didorong rasa penasaran. Avraham bertanya, "Huang Yeye, apa artinya?"
 
 Toghon Temur menggeleng-gelengkan kepalanya penuh penyesalan, bergumam tak jelas, "Sayang sekali... kalaupun belum terlambat, dia juga tidak punya kesempatan..."
 
----
-
-*Here's Yin Yewang's plot:*
 
 ## *Sungai Yangzte, Januari 1367: Menyelamatkan Yang Mulia, Membunuhnya*
 
@@ -102,10 +92,15 @@ Jubah berwarna kuning tampak terapung di tengah sungai. Tbuh orang yang memakain
 
 "Siapa lagi?" kata pria itu singkat. Detik berikutnya, ia berbalik, lalu secepat kilat melompat ke air di sisi lain kapal yang sedang karam. Kapten kapal utusan Naghachu mengejar ke arah yangs sama. Tetapi mereka hanya melihat pria setengah baya itu berada di dalam sebuah sekoci kecil, berlayar menuju ke barat sambil melambaikan tangannya.
 
-Seitar satu jam kemudian, pria itu turun di seberang sungai. Kudanya telah menunggu tak jauh dari tepi sungai itu. Tak jauh dari kuda itu, seorang pemuda berusia dua puluh tujuh tahun sedang menunggunya, tersenyum sambil bertanya, "Tampaknya sudah beres. Yin Daxia, kita ke mana sekarang?"
+Sekitar satu jam kemudian, pria itu turun di seberang sungai. Kudanya telah menunggu tak jauh dari tepi sungai itu. Tak jauh dari kuda itu, seorang pemuda berusia dua puluh tujuh tahun sedang menunggunya, tersenyum sambil bertanya, "Tampaknya sudah beres. Yin Daxia, kita ke mana sekarang?"
 
 Menyeringai lebar, Yin Yewang berkata, "Kunlun Shan. Jangan takut — *sekarang kau sudah mati*!"
 
-
 ---
+
+## *Februari, 1367: Pengawal Cilik Dan Nenek Bunga Emas*
+
+Baru sebulan setelah perintah untuk mengawal saudara-saudaranya dan semua anak lain ke Shangdu diberikan, Alessandra sungguh-sungguh berangkat melalui terowongan rahasia lain. Bukan seperti ketika masuk dari perpustakaan. Kali ini, terowongan itu terletak sebelah utara, tempat para penghuni harem yang dianggap 'berbuat dosa' diasingkan. Di salah satu kamar yang tampak sepi dan terlantar ada sebuah pintu rahasia menuju ke luar pintu gerbang utara Dadu. Dari situ, Kasim Kim membawa rombongan kecil itu melewati tembok besar. Alessandra memimpin di atas kuda dengan gagah. Bagi orang luar, pemandangan itu hanya tampak seperti seorang kakek yang membawa cucu-cucunya keluar kota untuk berlibur, dengan Alessandra sebagai cucu yang tertua.
+
+Tanpa setahu mereka, dari kejauhan, Tajkis mengawal dengan mengenakan jubah putih dan sosok Jinhua Popo, lengkap dengan tongkat kayunya yang berat.
 

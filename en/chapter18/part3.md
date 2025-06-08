@@ -74,6 +74,7 @@ Driven by curiosity, Avraham asked, "Huang Yeye, what does it mean?"
 
 Toghon Temur shook his head full of regret, mumbling indistinctly, "What a pity... even if it's not too late, he won't have a chance..."
 
+
 ## *Yangtze River, January 1367: Saving His Majesty, Killing Him*
 
 About two weeks after Alessandra received her assignment, Naghachu's ship arrived on the Yangtze River, where Han Lin'er was sailing with a large number of his guards. Han Lin'er's ship wasn't very big, not a warship. In the middle of the river, far from the banks, several other ships approached and charged towards them. No sound of cannon fire, no flames. However, during the assault, a large number of divers punctured the bottom of Han Lin'er's ship, slowly but surely, the ship began to sink.
