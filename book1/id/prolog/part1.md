@@ -37,15 +37,46 @@ Duoluo Jing tersenyum tipis. Ia tahu apa maksud ayahnya, tapi belum tahu bagaima
 
 Ia tertawa sambil bangkit berdiri, melihat Ki Son-yeo yang cekikikan. "Ayah curang!"
 
----
-
-*Next, is the lesson Qi Shengniang will remember for the rest of her life:*
-
 Duoluo Haoyu tampak heran. "Tadi aku mendorongmu? Kau jatuh sendiri." Ia beralih kepada murid kecilnya, berkata sambil mengedipkan matanya, "Itu — baru namanya *Wu Wei*. Jadi bukan sungguh-sungguh tidak melakukan apa-apa."
 
 Ia mengajak mereka ke halaman depan rumahnya, di depan rumah itu ada sebuah sungai kecil berair sangat jernih. Sungai kecil itu mengalir ke arah barat. Di tengah sungai kecil itu ada sebuah batu besar yang tampaknya menghalangi arus sungai yang tidak terlalu deras. Duoluo Haoyu biasanya mengajar Ki Son-yeo di atas batu besar itu.
 
 "Perhatikan air itu, apa yang kalian lihat?" katanya, memegang tangan Ki Son-yeo, lalu dengan ringan membawanya ke atas batu tempat mereka biasa berlatih kungfu. Dari atas batu itu mereka bisa nelihat aliran air sungai dari segala arah. Duoluo Jing mengikuti ayahnya, melompat dengan ringan.
 
+Ki Son-yeo cekikikan, katanya, "Tentu saja air."
+
+Tetapi Duoluo Haoyu tidak mau kalah. "Kau bisa melihat bentuknya?"
+
+Ki Son-yeo sekarang tampak bingung. "Shifu, air memang tidak ada bentuknya."
+
+Sekarang Duoluo Jing tertawa. Sejak kecil ia sudah sering mendengar pertanyaan ayahnya ini. Ia mengambil sebuah potongan bambu yang berongga cukup besar. Bambu itu biasa dipakai untuk minum bagi Ki Son-yeo. Ia lalu mengisinya dengan air sungai, berkata, "Nah, sekarang air menjadi bambu."
+
+"Oh!" kata Ki Son-yeo, seketika matanya berbinar, bertepuk tangan gembira. "Berarti air sebetulnya punya banyak bentuk. Air bisa berubah-ubah!"
+
+"Lalu, apa lagi yang kau lihat?" tanya gurunya.
+
+Ki Son-yeo teringat akan cerita gurunya tentang banjir besar yang melanda Zhongyuan akibat meluapnya Sungai Kuning. Ia berkata dengan penuh semangat, "Shifu, air ternyata bisa merobohkan bangunan besar, bahkan bisa membunuh banyak orang!"
+
+Gurunya dan Duoluo Jing tertawa. "Ini memang benar," kata Duoluo Jing, "Tapi kau tidak bisa menilai air itu buruk hanya gara-gara ada orang tenggelam atau banjir. Kau bisa membayangkan jika tidak ada air? Kita tidak bisa minum, tanaman kita semuanya mati."
+
+"Sekarang coba kau lihat bagaimana air itu mengalir," kata Duoluo Haoyu sambil menunjuk ke arah timur, "Air ini datang dari timur, yang lebih tinggi. Kita berdiri di batu besar ini, tetapi air ini tetap mengalir. Tentu saja akan meluap jika lebih banyak lagi tempat yang tertutup. Tapi air akan mencari jalannya sendiri, melalui sela-sela bebatuan, sampai ke tujuannya semula."
+
+"Ah! Jadi itu yang Shifu maksud, ada banyak cara melakukan segala sesuatu," kata Ki Son-yeo dengan mata berbinar, "Seperti air ini, bisa lewat sampping batu, bisa menembs tanah, bisa lewat atasnya, jika banjir!"
+
+"Betul," kata Duoluo Haoyu, "Kau takut tidak bisa melakukan sesuatu yang perlu tenaga besar? Tapi semut bisa membuat orang lari tanpa usaha." Ia membawa anak itu melompat ke seberang sungai, di mana ada banyak pohon mulberry. Banyak buah yang jatuh mengundang semut datang. "Coba lihat, mereka dengan mudah berkerumun di situ. Apa yang kau lihat di sini?"
+
+Kali ini, dengan segera, Ki Son-yeo bersorak, "Tentu saja mereka datang, karena yang jatuh itu manis! Semut suka yang manis-manis!"
+
+Kali ini kata-katanya membuat Duoluo Jing bergumam, "Berarti, jika kita ingin mebgundang semut, cukup berikan gula... Hmm..." Ia bertanya kepada Ki Son-yeo, "Menurutmu, apa yang harus kita lakukan jika ingin mengundang *orang*?"
+
+Ki Son-yeo menyeringai lebar, berkata, "Kata ayah, orang paling suka *uang*, jadi berikan saja uang."
+
+Mata Duoluo Haoyu berkedip. Ia mengambil air dari tepi sungai menggunakan bambu yang dibawa putranya, berkata sambil berjalan kembali, "Kau memang bisa mengundang semut untuk menakut-nakuti orang. Mereka akan datang jika ada gula. Tapi..." Ia menyiram sebuah mulberry yang sedang dikerumuni semut dengan airnya, "jika 'gula' itu tidak ada, maka semutnya juga akan pergi. Lalu, bagaimana jika orang yang kau takut-takuti itu berbalik melawanmu?"
+
+Sebenarnya saat ini Ki Son-yeo sedang memikirkan cara untuk menakut-nakuti seorang anak laki-laki sebaya, yang tidak dikenalnya, tapi tampaknya sering diajak datang oleh sejumlah tamu lain menemui ayahnya. Karena suatu hal yang tak dapat dijelaskannya sendiri, anak itu seringkali mendekatinya, dan ia tidak menyukainya. Ia sedang berpikir untuk mengoleskan banyak gula di pakaian anak itu jika berani mendekat. Sekarang, setelah gurunya menyiram semut itu, ia jadi merasa ide ini kurang bagus. Ia bergumam, "Berarti sebelum menakut-nakuti orang, kita harus belajar dulu cara melarikan diri..."
+
+Gurunya tersenyum, memegang tangannya, berkata, "Ya, begitu juga, sebelum kau belajar menggunakan pedang, pelajari dulu, apa itu *qinggong*." Ki Son-yeo kemudian merasa tubuhnya melayang, ketika gurunya melompat dengan sangat ringan kembali ke atas batu besar, tempat mereka biasa berlatih kungfu.
+
+---
 
 
