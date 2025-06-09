@@ -81,12 +81,6 @@ Tak ada jawaban selama beberapa detik, lalu mereka mendengar suara Ah Luo, "Kau 
 
 Kasim Kim membuka pintu sedikit, dan memasuki ruangan. Dua menit kemudian, ia membuka pintu sambil mempersilakan kedua permaisuri itu masuk, dan ia sendiri menutup pintu dari luar, menjaganya dengan setia. Ia berkata kepada kedua pelayan wanita di sisinya, "Setelah ini kita tidak boleh membiarkan siapapun masuk."
 
----
-
-*Thank you for the critical questions, they help me keep track of what might be missing. If we connect those names to the people and what's happening in Kaifeng, then it will make sense for the readers. A short foreshadowing event in Dadu had also been introduced earlier, so the name 'Mei Jian', 'Lihua' and 'Ah Luo', as well as 'Ah Xiu' would also make some sense now. Empress Bayan is very concern about Yin Li's safety, as well as all the people in Kaifeng, cause by Liu Futong's entrance:*
-
-*The continuing narrative should bring the readers to immediate understanding of what is happening:*
-
 Toghon Temur dan Ah Luo hanya mengenakan pakaian tidur, dan membiarkan rambut mereka terurai. Tanpa basa-basi lagi, Toghon Temur bertanya, "Apa yang terjadi? Bayan, tidak biasanya kau ikut campur dalam masalah seperti ini."
 
 "Kali ini Kaifeng dalam bahaya, jadi Bayan ingin tahu," jawab Permaisuri Bayan.

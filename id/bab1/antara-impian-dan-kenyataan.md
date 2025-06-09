@@ -1,8 +1,3 @@
----
-title: Bab 1 | Wudang, 1357 | Antara Masa Lalu dan Harapan
-layout: id-default.vto
----
-
 # Bab 1: Wudang, 1357
 ## *Antara Masa Lalu dan Harapan*
 

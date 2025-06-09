@@ -1,9 +1,3 @@
----
-title: Bab 1 | Xiangyang, 1357 | Harta Karun Tak Terduga
-layout: id-default.vto
----
-
-
 # Bab 1
 ## *Xiangyang, 1357: Harta Karun Tak Terduga*
 

@@ -80,3 +80,137 @@ Gurunya tersenyum, memegang tangannya, berkata, "Ya, begitu juga, sebelum kau be
 ---
 
 
+1 March	Ayurbarwada Buyantu Khan dies.
+19 April	Gegeen Khan, son of Ayurbarwada Buyantu Khan, becomes emperor of the Yuan dynasty
+
+*Back to 1320 timeframe. While 5 years old Ki Son-yeo was happy under tutelage of Duoluo Haoyu in Haengju, in Dadu, a very different scene happened, The following is the historical text for the scene:*
+
+"Ayurbarwada died on March 1, 1320. After Khayishan died, Ayurbarwada reneged his promise later in his reign by making his own son Shidibala the new Crown Prince in 1316. Therefore, his son succeeded him instead of one of Khayisan's sons."
+
+"His death created two decades of political turmoil. The Khunggirat faction under Temuder and Dagi became even more powerful at the court. After the assassination of Shidibala in 1323, none of his descendants ruled the Empire."
+
+*Thus, our narrative should be:*
+
+## *Dadu, 1 Maret 1320: Perebutan Tahta Di Ibukota*
+
+Setelah kematian Khayishan, Ayurbarwada mengingkari janjinya, dan mengangkat putranya sendiri — Shidibala — sebagai Putra Mahkota Dinasti Yuan. Menandai awal dari keretakan dan persengketaan antara dua kelompok besar, pendukungnya sendiri dan pendukung kakaknya, Khayisan.
+
+Setelah pengangkatan Shidibala, Ayurbarwada sendiri, pada hari ini, meninggal. Menimbulkan aneka macam reaksi, baik di kalangan rakyat jelata maupun di kalangan pemerintah.
+
+Ayurbarwada adalah putra kedua dari Darmabala dan Dagi dari kalangan Khonggirad, dan adalah cicit dari Kubilai Khan. Ia belajar dari Li Meng, seorang cendekiawan beraliran Konfusianisme. Hal ini sangat berpengaruh pada perilaku politiknya sejak masa remaja. Di bawah kepemimpinan Khayishan, ia ditempatkan sebagai Kepala Zhongshu Sheng[^zhongshu-sheng]. Ia dikelilingi oleh sejumlah besar birokrat suku Han, seperti Chen Hao, Wang I, Wang Yueh, Zhao Mengfu, Wang Chieh, Chan Yaoho, Shang-ye, Yao sui, and Hsia ku; para seniman Shang cheng dan Wang Cheng-peng. Ia fasih bicara maupun menulis dalam bahasa Han, melengkapi kecintaannya pada kaligrafi dan seni lukis suku Han, selain pengetahuannya yang sangat mendalam tentang ajaran Konfusius dan sejarah bangsa Han.
+
+Jauh sebelum naik tahta, ia dan kakaknya, Khayishan, disingkirkan dari arena politik oleh Bulugan Khatun, permaisuri dari Temur Khan, yang bertindak mewakili suaminya yang sakit. Setelah Temur meninggal, Bulugan, yang berasal dari kalangan Bayaud, berusaha mengangkat paman Khayishan dan Ayurbarwada, Ananda, seorang Muslim yang berkuasa sebagai Gubernur Zhongxing. Upaya ini diketahui oleh Darkhan Harghasun, *You Chengxiang*[^you-chengxiang] saat itu. Darkhan Harghasun lalu memanggil pulang Ayurbarwada dari Huaizhou ke Dadu. Mereka dengan sukses mengatur siasat untuk memenjarakan Bulugan dan Ananda.
+
+[^zhongshu-sheng]: Zhongshu Sheng (中書省), "Sekretariat Sentral" atau "Sekretariat Istana", adalah salah satu dari "Tiga Departemen dan Enam Kementerian" dalam struktur pemerintahan sejak era Cao Wei, dan masih dipakai Kubilai Khan, bertahan hingga saat ini.
+[you-chengxiang]: You Chengxian (右丞相), "Perdana Menteri Sayap Kanan".
+
+Singkatnya, Khayishan kemudian naik tahta, dan mengangkat Ayurbarwada sebagai Putra Mahkota. Kedua bersaudara ini saling berjanji bahwa anak-anak mereka akan memerintah secara bergantian.
+
+Tidak seperti pewarisan tahta sebelumnya, yang menimbulkan persengketaan, ketika Khayishan meninggal, Ayurbarwada dengan mulus melangkah ke singgasana. Saat ini, Shidibala memang mewarisi tahta sebagai Khan Agung dan sekaligus Kaisar Dinasti Yuan. Tetapi kematian Ayurbarwada dan keputusannya ini menjadi awal dari pertikaian politik selama dua puluh tahun. Kubu Khonggirat, yang dipimpin oleh Temuder dan Dagi, menjadi semakin kuat.
+
+
+## *Nanpo, 4 September 1323: Reformasi Sang Kaisar Idola Rakyat*
+
+Nenek Shidibala yang berwibawa, Dagi, mengangkat Shidibala menjadi Putra Mahkota pada tahun 1316, kemudian sebagai Khan, karena ia dilahirkan oleh seorang permaisuri dari kalangan Khonggirat. Ia juga diangkat menjadi Kepala Sekretariat Pusat dan Urusan Militer setahun kemudian. *Rakyat jelata melihat hal ini sebagai harapan yang sangat menjanjikan di era baru, terutama sekali karena latar belakang ajaran Konfusianisme Shidibala.*.
+
+Ayahnya, Ayurbarwada, bahkan sempat bermain-main dengan gagasan untuk mengundurkan diri dari tahta, membiarkan Shidibala menggantikannya. Pelindung Dagi, Temuder, diangkat sebagai guru Shidibala, *setelah ia sendiri gagal menaikkan pajak*.
+
+Antara saat kematian Ayurbarwarda dan kematiannya sendiri, pada bulan Oktober 1322, Temuder memiliki kekuasaan yang sangat kuat, dengan penuh bagi Dagi. Segera setelah penobatan cucunya, Dagi kembali memasang Temuder sebagai menteri dalam Sekretariat Pusat dan mengambil alih politik di genggaman tangannya sendiri secara lebih terbuka ketimbang pada saat Ayurbarwarda masih berkuasa.
+
+Terlepas dari upaya Shidibala merombak pemerintahan berdasarkan prinsip-prinsip Konfusianisme, kubu Temuder bersekutu dengan pengawal dan membunuh Shidibala pada tahun 1323. *Ini adalah peralihan kekuasaan berdarah yang pertama di dalam sejarah Dinasty Yuan*, dikenal sebagai Kudeta Nanpo[*nanpo], kaisar yang sedang berkuasa digulingkan oleh kelompok yang dipimpin oleh seorang non-Borjigin.
+
+[^nanpo]: Kudeta Nanpo atau Nanpo Zhibian (南坡之變), adalah peristiwa berdarah yang menewaskan Kaisar Shidibala, di usianya yang baru dua puluh satu tahun, dalam masa emas kekuasaanya, oleh kelompok non-Borjigin.
+
+---
+
+"...1323 means she's nearing 6:"
+- Historically, she was born 1315, so in 1323 she's 8, or even 9 when the news reached Haengju! A significant understanding began to form at eight or eight!
+
+The following information should match the almost 9 years old Ki Son-yeo:
+
+"A nine-year-old child is in middle childhood, a stage where they develop more complex friendships, begin to experience peer pressure, and become more aware of their bodies as puberty approaches. They are typically in elementary school and are capable of more independent thought and reasoning, though still requiring adult supervision."
+
+Thus, when Duoluo Jing discuss the news with his father, some thoughts might happened:
+
+---
+
+*Let's break Ki Son-yeo into several lines, to include her master wisdom, which will guide her for the rest of her life:*
+
+## *Haengju, Februari 1324: Pemahaman Peri Kecil Tentang Kekuatan*
+
+Saat berita tentang pembunuhan Shidibala itu tiba di rumah keluarga Duoluo Haoyu, Ki Son-yeo, hampir genap sembilan tahun, telah menguasai *qinggong* yang diajarkan gurunya, melompat ke atas batu besar di tengah sungai dan kembali lagi tanpa bantuan siapa pun. Gurunya mulai mengajarkan dasar-dasar *Yue Nu Jian Fa* dengan memakai pedang kayu.
+
+Ketika sedang duduk di hadapan paman gurunya dan Duoluo Haoyu sendiri, di dekat pondok bambu mereka, telinga Ki Son-yeo mendengar Duoluo Jing berkata, "Harapan rakyat yang baru tumbuh, sirna begitu saja...! Benar-benar kejam!"
+
+Lalu ayahnya menanggapi, "Bersekutu dengan pengawal istana untuk membunuh kaisar juga berani mereka lakukan, ini awal dari peperangan besar di keluarga Kubilai Khan sendiri. Sejak jaman dulu ambisi orang-orang di sekitar kaisar-lah yang selalu menjadi masalah, sekarang, jika tidak puas, mereka berani membunuh kaisar. Lalu siapa yang sebenarnya harus dianggap paling kuat bagi rakyat?"
+
+Ki Son-yeo menyela sambil tertawa, "Yang paling kuat? Tentu saja Shifu!"
+
+Ucapannya membuat Duoluo Haoyu, yang kini lebih sering bersandar di sebuah dipan bambu, tertawa terbahak-bahak. "Aiyaaa, anak baik, kau membuat orang tua malang ini terdengar seperti dewa. Kau boleh punya kungfu setinggi langit, tapi setelah usiamu tua, kau hanya bisa merenungkan segala sesuatu di atas dipan seperti ini sambil memejamkan matamu. Genghis Khan memohon bertemu dengan Qiu Chuji, membuat orang tua itu harus berjalan menempuh ribuan *li*, hanya untuk mengatakan hal yang sama — *tak ada orang yang bisa hidup selamanya*. Orang-orang selalu mencari peramal untuk menebak-nebak apa yang akan terjadi di masa depan. Aku merasa hal itu sangat bodoh. *Hanya ada satu hal yang paling pasti di dunia ini*, dan mereka justru membutakan diri tentang hal itu. mencari hal-hal yang mereka anggap ajaib."
+
+Terdorong rasa penasaran, Ki Son-yeo menyodorkan cangkir bambunya supaya Duoluo Haoyu bisa minum, lalu bertanya, "Shifu, apa itu hal yang paling pasti?"
+
+Mata tua Duoluo Haoyu berkedip. "Kau tidak tahu? Tentu saja, kita semua, cepat atau lambat, *pasti akan mati*. Itu satu-satunya hal yang pasti bagiku, di luar itu, segalanya adalah tidak pasti."
+
+Ki Son-yeo terdiam sejenak, lalu menjadi ingin tahu tentang masalah lain, "Shifu, apa hubungannya urusan di Dadu itu dengan kita di sini?"
+
+Duoluo Haoyu menoleh kepada anaknya. "Ah Jing, kau belum menceritakan siapa sebenarnya bocah tengik yang sering datang ke rumah ayah Shengniang itu?"
+
+Duoluo Jing tampak bimbang, tidak segera menjawab, membuat suasana menjadi hening sejenak, Suara dedaunan bambu tertiup angin menjelang musim semi ikut menghias acara kecil mereka di halaman pondok Duoluo Haoyu itu. Gemericik arus sungai terdengar seperti alunan musik pengiring tarian tradisional rakyat Goryeo, yang saat ini mulai diajarkan kepada Ki Son-yeo oleh ibunya.
+
+Lalu, dengan agak enggan, Duoluo Jing menjawab, "Shengniang, *pangeran* itu tampaknya akan menjadi *suamimu* nantinya..."
+
+Alis Ki Son-yeo kecil naik, ketika menyela dengan tajam, "Suami? Pangeran? Suami apa? Pangeran dari mana?"
+
+Melihat reaksinya, Duoluo Haoyu menghela nafas, menggeleng-gelengkan kepalanya dengan sedih, lalu merebahkan dirinya di atas dipan bambu sambil memejamkan matanya untuk berpikir. Nama pangeran yang disebutkan itu adalah Wang Jeong[^wang-jeong], putra dari Raja Goryeo, Wang To, yang sejak tahun 1314 lalu sudah mewarisi tahta sebagai Raja Chungsuk dari Goryeo. Ia dianugerahi nama Mongolia 'Aratnashiri'.[^aratnashiri] Hal ini membuat putra mahkota Goryeo saat itu, Wang Ko, yang sebenarnya adalah paman Wang To, segera membangun sekutu dengan Shidibala di Dadu. Di mata Duoluo Haoyu, permasalahan yang ada di dalam istana Goryeo ini sama rumitnya dengan apa yang terjadi di sepanjang sejarah Zhongyuan dan sekarang Dinasti Yuan, menyangkut perebutan tahta. Ia sama sekali tidak menyukai muridnya dikaitkan dengan hal semacam ini, tetapi ternyata Ki Ja-oh menyetujuinya.
+
+[^wang-jeong]: Wang Jeong (왕정) atau 君主制, yang dalam bahasa Han akan dibaca 'Junzhu Zhi', bermakna sangatt gagah 'Kerajaan' atau 'Monarki'.
+[^aratnashiri]: Aratnashiri, ditulis dalam karaker mandarin 阿剌忒訥失里, dibaca 'A-la-te-ne-shi-li'.
+
+Merasa gurunya mengabaikan pertanyaannya, Ki Son-yeo mengguncang-guncangkan bahu gurunya sambil merengek, nyaris menangis. "Shifu, *dizi* tidak mau menikah! Dizi tidak suka anak itu! Shifu harus menolong *dizi*."
+
+Duoluo Jing mencoba menghiburnya, menunjuk ke arah sungai, berkata, "Shengniang, kau masih ingat apa yang kita lihat tentang *air* itu?"
+
+Tetapi kali ini pelajaran tentang air sama sekali tidak menarik bagi Ki Son-yeo, ia kembali kepada gurunya, merengek lebih keras. "Shifu, *dizi* sungguh-sungguh tidak mau. Wang Jeong itu suka mengganggu anak-anak perempuan, *dizi* sama sekali tidak menyukainya."
+
+Sikap keras Ki Son-yeo ini mengingatkan Duoluo Haoyu akan putri Guo Jing yang bernama Guo Xiang, dengan masalah dan latar belakang yang berbeda. Saat itu, Duoluo Haoyu sendiri masih cukup muda, dan belum punya pangkat apa-apa di Kai Pang. Ketika Guo Xiang terangkap oleh Jinlun Fawang, dan Yang Guo saat itu membunuh Mongke Khan, ia sendiri sudah menjelang tiga puluh tahun, telah berkali-kali di utus oleh Huang Rong pergi mencari jejak Guo Xiang, dan akhirnya mereka menemukannya sedang belajar dari Jinlun Fawang. Rupanya, secara diam-diam, Guo Xiang sendiri akhirnya beranggapan bahwa Jinlun Fawang ini pantas menjadi gurunya, bertentangan dengan pendapat orang tuanya sendiri, maupun Yang Guo.
+
+Salah seorang pengurus Kai Pang yang paling dikagumi Duoluo Haoyu adalah Huang Rong sendiri, meskipun Huang Rong sebenarnya enggan menjadi Ketua Kai Pang. Terbukti, setelah Huang Rong lepas tangan, Lu Youjiao tewas dengan tragis, tanpa sempat menguasai Tongkat Penggebuk Anjing dengan baik, lalu Yelu Qi tidak terlalu berhasil mengembangkan Kai Pang. Saat itu, perhatian Huang Rong sudah sangat terpaku dalam mengatasi serangan Kubilai Khan ke Xiangyang, hanya membanti suaminya.
+
+Jinlun Fawang dan Mongke Khan memang tewas, tetapi bukan berarti masalah pribadi Guo Xiang beres. Gadis itu kemudian tak pernah muncul di Xiangyang, hanya bertualang sendirian, tak tentu arah, mencari sesuatu yang sebenarnya sudah disadarinya sendiri bahwa takkan pernah tercapai, yaitu menikah dengan Yang Guo. Ia bahkan tak pernah lagi bertemu dengan Yang Guo setelah mereka semua berpisah di Huashan.
+
+Samar-samar, meskipun belum terlalu jelas, Duoluo Haoyu melihat jelas keluar. Ia berkata dengan tenang, "Percayalah, untuk saat ini, kau belum akan menikah dengan siapa pun. Qinggong-mu sudah cukup bagus, tapi Yue Nu Jian Fa itu belum. Shifu ingin melihatnya lagi."
+
+Kata-kata ini cukup melegakan bagi Ki Son-yeo, tapi agak membingungkan bagi Duoluo Jing. Ketika Ki Son-yeo sedang melatih kembali ilmu pedang itu, ia bertanya, "Ayah, mengapa memberi anak ini harapan kosong?"
+
+Ayahnya membuka mata, meliriknya sekilas, lalu kembali memejamkan matanya, berkata, "Kau melihatnya sebagai harapan kosong? Aku tidak. Perhatikan latihan anak itu."
+
+---
+
+Keesokan harinya, Ki Ja-oh, sementara menikmati sarapan bersama keluarganya, berkata dengan muka berseri-seri, "Haha! Sekarang rencana Wang Ko itu dengan sendirinya gagal, setelah Huang Shang dibunuh!" Ia tak pernah menyukai Wang Ko, yang sudah jelas berambisi merebut tahta dari Raja Chungsuk. Keluarganya rata-rata sudah bosan mendengar ia memaki-maki nama ini dalam setiap sarapan.
+
+Istrinya, Yi Haeng-gom, hanya tertawa untuk mengimbangi ceritanya, berkata, "Maksudmu Son-yeo jadi punya kesempatan menjadi *permaisuri* nantinya, begitu, kan?"
+
+Semua anak laki-laki mereka yang sudah jauh lebih besar, Ki Sik, Ki Ch'ol, Ki Won, Ki Chu dan Ki Yun tertawa terbahak-bahak. Ki Ch'ol berkata, "Ibu menebak dengan jitu!"
+
+Tetapi, mendengar mereka menyebutkan nama panggilannya, Ki Son-yeo mengerutkan alisnya, berkata dengan tajam, "Aku tidak mau menikah dengan Wang Jeong itu!"
+
+Seketika, suasana riang itu tergantikan oleh ketegangan. Semua mata menatap ke arahnya dengan penuh teguran. Yi Haeng-gom melirik suaminya dengan cemas. *Anak bodoh ini tak seharusnya mengatakan apa-apa di sini*, sementara mereka makan, pikirnya.
+
+Ki Sik bertanya, alisnya naik, "Kau ingin kita semua dihukum mati?"
+
+Yang ada di benak Ki Son-yeo saat itu adalah 'janji' gurunya, 'Percayalah, untuk saat ini, kau belum akan menikah dengan siapa pun.' lalu '*Yue Nu Jian Fa*', ilmu pedang itu, *pedang*! Ia lalu berkata, menirukan gurunya, "Percayalah, aku tidak akan menikah dengan siapa pun saat ini." Ia tersenyum misterius, yang oleh kakak-kakaknya dipandang sebagai sikap membangkang.
+
+Ayah mereka berdehem. Ia sangat menyayangi Ki Son-yeo, yang paling kecil di antara semuanya. Di keluarga ini, tak seorang pun pernah memarahinya. Tanpa memaksa maupun mengatakan hal lain yang akan membuat putri kesayangannya tak senang, ia lalu mengalihkan perhatian kepada istrinya. "Haeng-gom, mungkin kau harus mengajar anak kita bermain msik dan menari. Ini penting, bisa menenangkan jiwa."
+
+Tersenyum, istrinya menjawab, "Oh, sudah beberapa minggu dia mulai belajar. Son-yeo, coba mankan sitar itu!"
+
+
+
+
+---
+
+In 1314 when King Chungseon passed the throne to his son Ratnashri (King Chungsuk), Öljeyitü was installed as Crown Prince and sent to the Yuan court as a hostage by rule. However, when King Chungsuk fathered Buddhashri (King Chunghye), Öljeyitü forced to abdicate from crown prince, but King Chungseon transferred his post of King of Shen to him instead. The title of King of Shen was originally given to King Chungseon by Khayishan (Külüg Khan) after his support of Khayisan's succession in 1307. Öljeyitü married with a daughter of Sungshan (松山 songshan), King of Liang (粱王) of the imperial family.
+
+When Sidibala (Gegeen Khan) ascended to the throne in 1320, Öljeyitü began a campaign to become the King of Goryeo. By his scheme, the Khan banished Chungseon to Tibet in 1320 and interned King Chungsuk in 1321. However, Sidibala was assassinated in 1323 and Öljeitü's plan was aborted.
+

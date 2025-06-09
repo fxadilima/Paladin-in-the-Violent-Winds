@@ -1,8 +1,3 @@
----
-title: Bab 1 | Wudang, 1357 | Pernikahan Di Wudang Shan
-layout: id-default.vto
----
-
 # Bab 1: Wudang, 1357
 ## *Hari Pernikahan Di Wudang*
 
@@ -245,10 +240,11 @@ Zhao Min hampir tertawa melihat sikapnya. Ia berpikir, "Dengan begini ia mengali
 
 Fan Yao berkata, "Saudara-saudara, Jiaozhu memang sudah lama memikirkan hal ini. Sayangnya sebelum kami membuat keputusan yang menentukan, pemberontakan ini sudah terjadi. Tapi kami bisa berjanji, malam ini juga, setelah makan malam, kami akan mengatakan keputusan kami. Kami harap saudara-saudara mendukung keputusan itu."
 
-Terdengar suara para tamu saling berbisik dan bergumam tak jelas, lalu di sela-sela suara mereka tiba-tiba suara nyaring Zhang Sanfeng membuat suasana kembali tenang, "Bicara tentang makanan, Pinto sekarang ini merasa sangat lapar. Membicarakan politik selalu membuatku lapar."
+Terdengar suara para tamu saling berbisik dan bergumam tak jelas, lalu di sela-sela suara mereka tiba-tiba suara nyaring Zhang Sanfeng membuat suasana kembali tenang, "Bicara tentang makanan, *Pindao* sekarang ini merasa sangat lapar. Membicarakan politik selalu membuatku lapar."
 
 Ucapannya yang berbau lelucon itu menimbulkan tawa di sana-sini. Ia kemudian menyuruh Yu Daiyuan supaya segera menyiapkan hidangan bersama murid-murid yang menjadi anak asuhnya.Karena menyiapkan hidangan bagi tamu sebanyak itu memerlukan waktu, Zhang Wuji memanfaatkan kesempatan itu untuk mengajak Zhang Sanfeng, Yu Lianzhou, dan beberapa orang yang sudah disepakati sebelumnya untuk mengadakan rapat kecil di ruang meditasi kakek gurunya.
 
+---
 
 Di ruangan yang sangat sederhana itu, Zhang Sanfeng hanya ditemani oleh dua orang muridnya, Yu Lianzhou dan Zhang Songxi. Zhang Wuji tentu saja ditemani kedua istrinya, sedangkan Yin Liting dan Yang Buhui bersama murid-murid Wudang lainnya bertugas untuk menemani para tamu di Aula Utama. Selebihnya hanya Yang Xiao dan Fan Yao yang hadir dari pihak Ming Jiao.
 

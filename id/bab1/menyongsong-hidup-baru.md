@@ -1,8 +1,3 @@
----
-title: Bab 1 | Wudang, 1357 | Menyongsong Hidup Baru
-layout: id-default.vto
----
-
 # Bab 1: Wudang, 1357
 ## *Menyongsong Hidup Baru*
 

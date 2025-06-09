@@ -65,7 +65,6 @@ With his wealth of experience as a man who had lived for over a hundred years, w
 
 War was truly unavoidable. In this regard, the country indeed needed an emperor, but a cruel emperor still needed to be warned. Zhang Sanfeng hoped that the three young people would return to Wudang with good news.
 
-
 ## *Xiangyang, 1355: A Small Incident in Legendary City*
 
 After descending from the Wudang mountains, the first place that came to mind was Xiangyang. It was in this city that the legendary martial arts couple, often spoken of by people and also by Zhang Sanfeng, had fiercely defended its fortress. Tales of Guo Jing and Huang Rong's heroism still resonated to this day. They themselves had recently been involved in events related to the couple's creations—Yitian Jian and Tulong Dao!

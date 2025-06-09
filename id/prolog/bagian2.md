@@ -145,7 +145,7 @@ Tiba-tiba Zhang Wuji teringat sesuatu dan bertanya, "Tadi yang kau maksud beront
 
 [^jianguo]: Jian Guo (監國 atau 监国) = Wali Negeri. 
 
-"Bukan," kata Zhao Min. "Ini ada kaitannya dengan Kusala, ayah Kaisar Toghon Temur. Tapi yang memberontak juga bukan dia. Tepatnya ada serangkaian pemberontakan di istana, sampai akhirnya El Temur berkuasa sebagai Perdana Menteri dan sekaligus Wali bagi kaisar."
+"Bukan," kata Zhao Min. "Ini ada kaitannya dengan Kusala, ayah Kaisar Toghon Temur. Tapi yang memberontak juga bukan dia. Tepatnya ada serangkaian pemberontakan di istana, sampai akhirnya El Temur berkuasa sebagai Perdana Menteri dan sekaligus *Wali bagi kaisar*."[^jianguo]
 
 Zhang Wuji belum pernah mendengar cerita ini. "Bagaimana bisa terjadi hal semacam itu?" tanyanya.
 
@@ -247,8 +247,6 @@ Zhang Wuji yang masih penasaran mengembalikan topik yang melebar, "Tadi kau bila
 
 ---
 
-*Both Zhang Wuji and Zhou Zhiruo, so engaged in the historical story, after setting in an Inn, Zhang Wuji force Zhao Min to reveal more:*
-
 Mereka melanjutkan perjalanan dan mencari penginapan di kota terdekat. Zhou Zhiruo sangat ingin mendengar cerita tentang Permaisuri Qi, tetapi Zhang Wuji sedang penasaran mengenai apa yang dilakukan oleh El Temur. Karena mereka sedang berpacu di atas kuda, rasa penasaran itu terpaksa ditunda sampai mereka tiba di sebuah penginapan yang cukup sederhana di sebuah kota kecil. Penginapan itu tidak menyediakan makanan, untungnya Zhao Min membeli banyak makanan sebelumnya, jadi mereka bisa makan malam di teras penginapan sambil melanjutkan cerita, setelah menyegarkan diri dan memesan dua kamar. Zhou Zhiruo dan Zhao Min menginap di satu kamar, dan Zhang Wuji memesan kamar yang lebih kecil untuk dirinya sendiri.
 
 Ia lalu memaksa Zhao Min bercerita lebih banyak. "Untung ada Permaisuri Budashiri, setidaknya Toghon masih dibiarkan hidup. Kurasa kematian Rinchinbal itu juga misterius, mungkin El Temur menyuruh orang menaruh racun di makanannya."
@@ -272,11 +270,6 @@ Zhang Wuji menghela nafas panjang dengan sedih, lalu berkata, "Kasihan sekali an
 Saat itu kejengkelan Zhou Zhiruo sirna seketika, hatinya melembut. Ia berkata dengan penuh perhatian, "Kau jangan berpikir begitu. Kita tidak bisa memutar balik waktu, dan mereka meninggalkan pulau itu adalah demi dirimu. Mereka ingin supaya kau bisa menikmati kehidupan yang layak di Zhongyuan. Kalau tetap di pulau itu, bagaimana kau akan menghabiskan waktumu sendirian setelah mereka bertiga akhirnya meninggal? Bukankah semua orang akhirnya akan tetap mati? Itu tidak bisa dihindari. Dan kalau tetap di situ, bukankah kau akan mati tanpa meninggalkan keturunan?"
 
 Bicara sampai di sini, suasana tiba-tiba menjadi hening. Kalimat Zhou Zhiruo yang terakhir itu membuat mereka bertiga kembali menyadari keadaan mereka saat itu. Mereka sadar bahwa saat ini baik Zhao Min maupun Zhou Zhiruo masih memegang sebuah permintaan bagi Zhang Wuji. Jika sebelumnya Zhao Min meminta agar Zhang Wuji tidak menikahi Zhou Zhiruo di Haozhou, maka sekarang Zhou Zhiruo pasti akan melarangnya menikahi Zhao Min. Dan kemudian Zhao Min pun pasti akan meminta hal yang serupa. Setelah beberapa saat, tanpa sadar mereka bertiga tertawa bersama, masing-masing menertawakan diri sendiri.
-
----
-
-*Expanding on Zhou Zhiruo's 'Empathy' for "Other Tribes" (Optional): When Zhou Zhiruo says, "That's terrible, again, just because he's the son of a woman from another tribe!" and Zhang Wuji notes her internal thought about defending Zhao Min, you could perhaps slightly expand on her internal processing of this. Is she consciously beginning to question her Emei-taught prejudices, or is it an instinctive, almost unconscious empathy emerging?*
-- We insert it here:
 
 Zhao Min memandang ke bulan sabit di langit, lalu mulai melantunkan sebuah puisi dengan gaya yang anggun. Suaranya sangat jernih dan merdu. "*Terburu-buru mencintai, terburu-buru membenci, siapa yang akan melewati suka dan duka bersamaku? Hidup manusia seperti angin yang berlalu, dalam sekejap mata kita akan kembali menjadi debu, dan menghilang bersama sang waktu*..."
 

@@ -1,7 +1,3 @@
-*The chronology for these events should be seriously checked, due to it's nature (written with the death of Ni Wenjun in mind), as they progresses, it may be closer to (or already spring). Later on, Zhou Zhiruo would give birth to her first child in New Year's Eve, according to Gregorian calendar, so the baby girl would be born possibly in early New Year 1358, or just before (this will be an abstract, symbolic, sign of a new hope, as the baby would be the next protagonist in Book 3)*
-
-*Currently, Zhou Zhiruo has already set her feet in Hanyang, intended as a friendly visit to Chen Youliang's 4 concubines:*
-
 # Bab 1
 ## *Menyambut Sang Fajar di Hanyang*
 

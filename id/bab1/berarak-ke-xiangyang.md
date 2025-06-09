@@ -1,8 +1,3 @@
----
-title: Bab 1 | Wudang, 1357 | Berarak ke Xiangyang
-layout: id-default.vto
----
-
 # Bab 1
 ## *Berarak Ke Xiangyang, 1357*
 

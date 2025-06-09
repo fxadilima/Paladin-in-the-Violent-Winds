@@ -62,8 +62,6 @@ Qi Shengniang bersalto beberapa kali untuk mengakhiri pertunjukan itu. Ia tersen
 [^dadu]: Dadu atau Khanbaliq adalah ibukota Dinasti Yuan, yang di era modern adalah Beijing.
 [^tahun-baru-imlek]: Tahun Baru Imlek dalam konteks aslinya hanya disebut 'Xin Nian' (新年), karena bagi mereka tentu saja 'Tahun Baru' yang umum hanya berdasarkan kalender ini. Dalam Dinasti Yuan, khususnya ketika menjelang akhir, mereka mengenal kalender Shoushi, yaitu perhitungan penanggalan yang dikembangkan di era Dinasti Yuan, hingga akhirnya menghasilkan 1 tahun terdiri dari 365 hari, meskipun tetap berdasarkan perhitungan sebelumnya.
 
-*Sure we will continue with Yin Li & her newly found "Aunt Qi", is the following narrative too lengthy?:*
-
 Qi Shengniang memeluknya, lalu mencium kedua pipinya dengan gembira. Tampaknya Yin Li sangat senang bisa memanggilnya Bibi Qi. Sambil menggandeng tangan Yin Li dengan lembut, Qi Shengniang berkata, "Tadi di dekat penginapan Bibi melihat ada penjual makanan khas Kaifeng yang asin dan berbumbu. Bagaimana kalau kita ke situ sekarang?"
 
 Yin Li bersorak kegirangan. "Aku memang lapar," katanya. "Hari ini aku tidak punya kesempatan mencuri makanan. Terlalu ramai di sekitar sini menjelang perayaan."

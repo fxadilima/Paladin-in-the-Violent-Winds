@@ -126,10 +126,6 @@ Saat itu sempat melihat Zhang Songxi seolah-olah baru terbangun dari tidurnya, l
 
 Wu Liubo mengiyakan, dan segera beranjak keluar.
 
----
-
-*This turn of event looks fishy, but seemingly turns out to be a good one:*
-
 Begitu ia keluar, Zhang Songxi segera berkata kepada semua orang lain, "Kita harus segera menyingkirkan semua ini, lalu menyuruh orang itu membawa semua peti itu ke sini untuk menemui Wuji." Ia menoleh kepada Bei Jinyi. "Bei Shimei, aku terpaksa merepotkanmu."
 
 Bei Jinyi buru-buru memanggil sebanyak mungkin pelayan untuk membantu mereka merapikan meja dan membawa semua makanan kembali ke dapur. Ketika Ah Zhu hendak merapikan meja lain yang dipenuhi lembaran kertas, Zhang Songxi melarangnya, "Biarkan semua kertas itu tetap di tempatnya!"
@@ -208,8 +204,6 @@ Zhang Wuji tersenyum lebar, lalu berkata, "Sima Zhanglao, kau siapkan lima ruang
 
 Sejak itu Zhang Wuji punya sekitar seribu anak-anak muda yang ikut menangani pekerjaannya sehari-hari. Semua orang di sekitar tempat itu mengenal mereka sebagai 'Polisi Rahasia' Ming Jiao. Mereka adalah pasukan kebanggaan Zhang Wuji, Yu Daiyan dan Bei Jinyi.
 
-
-*The Embroidered Uniform is actually invented by Zhao Min and Zhou Zhiruo, with no intentions on spying on anybody, now that they heard the news, they also have their own plan to make use of it:*
 
 ### Lahirnya Polisi Rahasia Kedua
 
