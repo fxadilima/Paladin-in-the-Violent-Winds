@@ -102,7 +102,7 @@ At one time, his father Ayurbarwada had even toyed with the idea of abdicating t
 
 Between Ayurbarwada's death in March 1320 and his own death in October 1322, Temüder attained a great power with the full support of Dagi. Immediately after her grandson's succession, Dagi reinstated Temüder as Minister of the Secretariat and took politics into her own hands more openly than during Ayurbarwada's reign.
 
-Despite Shidibala's aim to reform the government based on the Confucian principles, *Temuder's faction* linked up with the Alan guard and assassinated Shidibala in 1323. *This was the first violent transition struggle in the Yuan dynasty's history*, which is also known as the Coup d'état at Nanpo (南坡之變), that an emperor was overthrown by a group led by a non-Borjigin.
+Despite Shidibala's aim to reform the government based on the Confucian principles, *Temuder's faction* linked up with the Alani guard and assassinated Shidibala in 1323. *This was the first violent transition struggle in the Yuan dynasty's history*, which is also known as the Coup d'état at Nanpo (南坡之變), that an emperor was overthrown by a group led by a non-Borjigin.
 
 ## *Haengju, February 1324: A Little Fairy's Understanding of Power*
 
@@ -180,9 +180,7 @@ Ki Sik and the other brothers exchanged glances, a subtle shake of their heads c
 
 Feeling her sister was truly defiant, Ki Won rose from his chair, angry. "At the very least, from now on, you must behave better whenever Wang Jeong comes! Don't argue!"
 
-Feeling outmatched by their authority, Ki Son-yeo turned to her mother. "*Eomma*[^eomma], this isn't fair! Son-yeo doesn't want to marry that Wang Jeong!"
-
-[^eomma]: Eomma 엄마, is the familiar way a child calls his mother in those days, similar to 'Niang' in Zhongyuan. A more formal term is Eomeoni (어머니), which is more or less 'Muqin' (母親).
+Feeling outmatched by their authority, Ki Son-yeo turned to her mother. "*Eomma*[^eomma], this isn't fair! Son-yeo doesn't like that Wang Jeong!"
 
 Smiling faintly, her mother simply said, "Just singing, playing the zither, and dancing—no one is telling you to get married. It's not difficult, is it?" Speaking to a stubborn child like Ki Son-yeo couldn't involve force, she thought to herself. She'd have to try a different approach after this.
 
@@ -191,4 +189,120 @@ Though her mother's words weren't entirely convincing to Ki Son-yeo, she held on
 Duoluo Haoyu's promise was no empty talk. King Chungsuk was indeed made king, but according to Yuan Dynasty regulations, he was also forced to become a political hostage in Dadu since 1321 and had not yet returned. Even if he were to return, it certainly wouldn't be anytime soon. How would they perform a marriage between the children while their king was held hostage in Dadu?
 
 ---
+
+
+The next day, Ki Ja-oh, while enjoying breakfast with his family, said with a beaming face, "Haha! Now Wang Ko's plan has naturally failed, after the *Khagan* was assassinated!" He had never liked Wang Ko, who clearly harbored ambitions to seize the throne from King Chungsuk. His family was generally tired of hearing him curse Wang Ko's name at every breakfast.
+
+His wife, Yi Haeng-gom, merely laughed to match his story, saying, "You mean Son-yeo will have a chance to become the empress later, right?"
+
+All their much older sons, Ki Sik, Ki Ch'ol, Ki Won, Ki Chu, and Ki Yun, burst into laughter. Ki Ch'ol said, "Mother guessed correctly!"
+
+However, hearing them mention her nickname, Ki Son-yeo furrowed her brow, saying sharply, "I don't want to marry that Wang Jeong!"
+
+Immediately, the cheerful atmosphere was replaced by tension. All eyes stared at her, full of reprimand. Yi Haeng-gom glanced anxiously at her husband. This foolish child shouldn't say anything here, while they were eating, she thought.
+
+Ki Sik asked, raising an eyebrow, "Do you want all of us to be executed?"
+
+What was on Ki Son-yeo's mind at that moment was her master's 'promise': 'Believe me, for now, you won't be marrying anyone.' Then, 'Yue Nu Jian Fa', that sword art, the sword! She then said, imitating her master, "Believe me, I won't be marrying anyone right now." She smiled mysteriously, which her older brothers interpreted as defiance.
+
+Their father cleared his throat. He deeply loved Ki Son-yeo, the youngest of them all. In this family, no one had ever scolded her. Without forcing or saying anything else that would displease his beloved daughter, he then diverted attention to his wife. "Haeng-gom, perhaps you should teach our child to play music and dance. This is important; it can calm the soul."
+
+Smiling, his wife replied, "Oh, she's already begun learning a few weeks ago. Son-yeo, try playing that zither!"
+
+This time, Ki Son-yeo joyfully obeyed her mother's command. In truth, her master had a daughter older than Duoluo Haoyu, now living with her husband also in Haengju, whom she affectionately called 'Aunt Lian' (蓮, meaning 'Lotus'). Long before her parents began teaching her to play the zither, sing, and dance, Aunt Lian had already perfectly instructed her. Because of this, her mother was astonished to see her learn so quickly.
+
+She demonstrated her mastery of zither playing while singing, then performed several dances taught by her own mother, which she combined with a sword dance—the essence of Yue Nu Jian Fa—transformed into a flowing performance. This demonstration earned thunderous applause from both her parents and her older brothers.
+
+"Father," Ki Ch'ol exclaimed, "now Son-yeo truly deserves to be a future empress!"
+
+With her prior outburst still resonating, Ki Son-yeo quickly retorted, "If you want empress, *you* be empress. Not me!"
+
+Ki Sik and the other brothers exchanged glances, a subtle shake of their heads conveying their exasperation. This little sister was truly stubborn.
+
+Feeling her sister was truly defiant, Ki Won rose from his chair, angry. "At the very least, from now on, you must behave better every time Wang Jeong comes! Don't argue!"
+
+Ki Son-yeo, feeling outmatched by their authority, turned to her mother. "*Eomma*[^eomma], this isn't fair! Son-yeo doesn't like that Wang Jeong!"
+
+Smiling faintly, her mother simply said, "Just singing, playing the zither, and dancing—no one is telling you to get married. It's not difficult, is it?" Speaking to a stubborn child like Ki Son-yeo couldn't involve force, she thought to herself. She'd have to try a different approach after this.
+
+Though her mother's words weren't entirely convincing to Ki Son-yeo, she held onto her master's promise. She forced herself to obey, recalling her master's lesson about the flow of river water. However, secretly, she began to think, Yue Nu Jian Fa was good, and she would definitely train even harder. But for this situation, she couldn't face it with a wooden sword! Secretly, she began to look for opportunities to steal a weapon from her father or her brothers.
+
+Duoluo Haoyu's promise was no empty talk. King Chungsuk was indeed made king, but according to Yuan Dynasty regulations, he was also forced to become a political hostage in Dadu since 1321 and had not yet returned. Even if he were to return, it certainly wouldn't be anytime soon. How would they perform a marriage between the children while their king was held hostage in Dadu?
+
+[^eomma]: Eomma 엄마, is the familiar way a child calls his mother in those days, similar to 'Niang' in Zhongyuan. A more formal term is Eomeoni (어머니), which is more or less 'Muqin' (母親).
+
+
+## *Haengju, April 1324: A Secret Blade and a Shifting Throne*
+
+A few months later, Ki Son-yeo managed to steal a dagger belonging to Ki Yun, which was very sharp and beautiful in her eyes. She always carried it in her inner pocket, secretly practicing her master's Yue Nu Jian Fa with this dagger every night, without anyone else knowing. But of course, she couldn't hide such a thing from Douluo Haoyu, who always observed her closely.
+
+Meanwhile, news of Yesün Temür's enthronement as Khagan and Emperor of the Yuan Dynasty, replacing Shidibala, had reached Douluo Haoyu and his son. They discussed it every night. One thing that interested them most was that Yesün Temür was known to greatly love *the original Mongolian traditions*, contrary to the views of Kublai, Khayishan, and Ayurbarwada. He was clearly different from Shidibala.
+
+Yesün Temür's father was Gammala, the eldest son of Zhenjin, who was the official heir—Kublai Khan's chosen crown prince, who unfortunately died before Kublai himself. Zhenjin was known as a loyal follower of Confucianism and clearly adhered to the same principles as Kublai, perhaps even more deeply. After Zhenjin's death, Gammala was appointed as *Jinong*[^jinong], but was later outcompeted by his younger brother, Temür. Subsequently, Darmabala and all of Kublai's descendants from that line dominated the selection of the Khagan and Emperor of the Yuan Dynasty, completely sidelining Gammala and his son, Yesün Temür, from the competition. However, as Jinong, Gammala ruled the Mongolian steppes and the Gobi Desert, and he eternalized the greatness of Genghis Khan there through the Four Great Orders of Mongolia. After Gammala's death, Yesün Temür took over his position as Jinong. During the reigns of Khayishan, Ayurbarwada, and Shidibala, Yesün Temür, who owned vast lands in the north and had a strong military, became the most respected prince by the Great Assembly of Mongolia. His power as a leader on the steppes was unmatched by other Khans.
+
+[^jinong]: Jinong or Jinwang (晉王) was a very high rank, which could be held by a Yuan Dynasty noble. Only those who had family ties with Kublai could hold this title.
+
+"Hmm, how did the people of Zhongyuan react?" Duoluo Haoyu asked, closing his eyes on his couch. "Do they like this Yesün Temür?"
+
+"Oh, it's very interesting," Douluo Jing said, laughing. "Initially, many people were hesitant because Yesün Temür's views clearly reeked of something foul — very fanatical about traditional Mongolian ways. But it turns out that, from the beginning of his enthronement, he showed respect to all Han officials and those who adhered to Confucian philosophy! The common people were then divided, and many praised him."
+
+Douluo Haoyu laughed, "Clearly, because he ascended the throne through a *coup*!"
+
+"According to Father, did he participate in that bloody coup?" Douluo Jing asked.
+
+"That's for sure," his father replied. "You said, what was his name again—the official's name?"
+
+"Daulat Shah," Douluo Jing answered. "He's a Muslim."
+
+"Oh, right. This man must have a connection with Walus, Tegshi's envoy, who supposedly arrived late to inform Shidibala," Douluo Haoyu said, laughing again. "How could such a thing happen? Lying to a child!"
+
+"Well, Father, you're mistaken," Douluo Jing countered. "Now, it turns out Tegshi, Esen Temur, and the others were all executed! Yesün Temür sent troops to Dadu and Shangdu to arrest officials he considered prone to rebellion against Shidibala."
+
+"That's because he's afraid those people will make him a 'Puppet Emperor' next!" his father retorted. "Now tell me, what position has Daulat Shah been appointed to now?"
+
+"He's been appointed Administrator of Political Affairs in the Zhongshu Sheng," Douluo Jing replied, a faint smile on his face, understanding his father's intent.
+
+"See! What'd I tell you?" Douluo Haoyu said, opening his eyes and chuckling. "I bet now there are a lot of Muslims and Mongol officials from the Mongolian steppes holding power in the Zhongshu Sheng and other key positions, right? And conversely, I doubt many Han people are involved. If any are, they're probably given unimportant posts!"
+
+Carefully examining his notes, Douluo Jing finally nodded. "Turns out you were right, Father!"
+
+Suddenly, his father asked, "What about our king—that Wang To? Is he free?"
+
+"No news," Douluo Jing answered, then muttered, "He should be... but there's no news yet..."
+
+His father closed his eyes again, seemingly relieved. "Tell me when there is news."
+
+Douluo Jing was about to say something else, but he saw his father's eyes were tightly closed, a sign he didn't want to be disturbed. "King Chungsuk is certainly important," he thought, "This must be because Father is worried about Shengniang." But to him, Wang To was most likely never coming back. Although Wang Ko's plan had failed, he had now married the daughter of the Yuan Dynasty's Prince of Liang and already held the title of King Shen of Yang (瀋王, Sim-yang Wang in Goryeo), a title previously held by King Chungseon, Wang To's father. This title had been granted to Chungseon for supporting Khayishan. Due to Wang Ko's machinations, King Chungseon was later exiled to Tibet, and Wang To himself was held hostage in Dadu, though treated well.
+
+For Douluo Jing, the understanding of 'Wang' had changed after they joined the Yuan Dynasty. The character 'Wang' (王) was indeed understood as 'King' in Goryeo, but for the Yuan Dynasty, it was actually no more than a 'Prince'. As a result, the title 'King Shen of Yang' would be highly regarded by the people of Goryeo, equivalent to King Chungsuk himself, because it used the character 王, unlike 'Gun' (君), which was read 'Jun' in Han language!
+
+At this point, Douluo Jing then wondered, what was the point of waiting for King Chungsuk? If Wang Ko returned, wouldn't they also have a king? If they wanted to help Ki Son-yeo, wouldn't it be more advantageous if Wang Ko returned here?
+
+Thinking along these lines, he finally exhaled. This endless chess game was indeed exhausting, but for Shengniang's future, he simply had to play it.
+
+Unfortunately, a few months later, the situation shifted again. He received news from his friends in Zhongyuan that Emperor Yesün Temür had decided to release Wang To. Wang To was currently preparing to return to Goryeo.
+
+He immediately informed his father. "Father, King Chungsuk is on his way home. Isn't it time we spoke with Ki Ja-oh to cancel Shengniang's engagement?"
+
+To his surprise, his father chuckled. "If you can, go right ahead. But I'd prefer if, from now on, you instruct Shengniang to memorize this..." His father then pulled out a book he had written himself from under his pillow.
+
+Startled, Douluo Jing was about to ask a question, but then his eyes widened in astonishment. He exclaimed, "*Xianglong Shiba Zhang*[^xianglong-shiba-zhang]?" as he read the title of his father's book. "Father, isn't this... Great Hero Guo's martial art?"
+
+"Indeed," his father replied. "You yourself didn't learn it. I saw no need for you to learn this art. But Shengniang is currently in a desperate situation. We must give her something as preparation that she can study later, once she's older. Her internal energy isn't strong enough yet."
+
+Becoming confused, Douluo Jing asked, "Father, this..." Just then, his father coughed repeatedly. He immediately helped him ease his breathing. Lately, his father's health had been worsening as he approached ninety-five years old. He still hoped his father could reach a hundred, even though he knew his father always said that all humans would surely die, and that was the only thing certain in this world.
+
+After his breathing improved, Douluo Haoyu said, "Don't delay. Tomorrow, you can begin teaching her all of this. In short, tell her to memorize everything. No need for immediate practice."
+
+[^xianglong-shiba-zhang]: Xianglong Shi Ba Zhang (降龍十八掌), "18 Dragon Subduing Palm", is Kai Pang's signature move, passed down by Hong Qigong to Guo Jing. The same move was popularized by Kai Pang's much earlier master, Qiao Feng.
+
+Douluo Jing would, of course, carry out his father's command, but he noticed this book had clearly been written by his father not long ago. He knew his father had inherited this martial art from Yelu Qi, before the Beggar's Sect leader died and his father fled to Goryeo. But such an art was generally not passed down casually to others, which was why he himself had never been taught it. Now his father was instructing him to read its contents to Ki Son-yeo, meaning he too would certainly be able to learn it. This implied his father intended to pass down this art more openly now.
+
+As far as Douluo Jing knew, even Yang Guo, who could be considered a protector of the Beggar's Sect, didn't master this art! This meant his father saw something far more important at stake right now than merely saving Ki Son-yeo's life! He wondered to himself what his father was truly thinking.
+
+Unfortunately, his father's continuously declining health meant he couldn't bear to ask further. The next day, he began reading the book aloud for Ki Son-yeo to memorize, and he himself started memorizing it as he read. As he did so, his mind also churned, searching for another way to cancel Ki Son-yeo's engagement to Wang Jeong.
+
+---
+
+[Next, Part 2: Little Fairy Flying in The Sky](./part2.md)
 

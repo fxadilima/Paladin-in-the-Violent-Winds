@@ -121,20 +121,6 @@ Terlepas dari upaya Shidibala merombak pemerintahan berdasarkan prinsip-prinsip 
 
 [^nanpo]: Kudeta Nanpo atau Nanpo Zhibian (南坡之變), adalah peristiwa berdarah yang menewaskan Kaisar Shidibala, di usianya yang baru dua puluh satu tahun, dalam masa emas kekuasaanya, oleh kelompok non-Borjigin.
 
----
-
-"...1323 means she's nearing 6:"
-- Historically, she was born 1315, so in 1323 she's 8, or even 9 when the news reached Haengju! A significant understanding began to form at eight or eight!
-
-The following information should match the almost 9 years old Ki Son-yeo:
-
-"A nine-year-old child is in middle childhood, a stage where they develop more complex friendships, begin to experience peer pressure, and become more aware of their bodies as puberty approaches. They are typically in elementary school and are capable of more independent thought and reasoning, though still requiring adult supervision."
-
-Thus, when Douluo Jing discuss the news with his father, some thoughts might happened:
-
----
-
-*Let's break Ki Son-yeo into several lines, to include her master wisdom, which will guide her for the rest of her life:*
 
 ## *Haengju, Februari 1324: Pemahaman Peri Kecil Tentang Kekuatan*
 
@@ -217,7 +203,7 @@ Dengan segera, komentar itu dianggapi dengan ketus oleh Ki Son-yeo, "Kalau meman
 
 Merasa adiknya sungguh-sungguh membangkang, Ki Won bangkit dari kursinya, marah, "Setidaknya, mulai sekarang kau *harus* bersikap lebih baik setiap kali Wang Jeong datang! Jangan membantah!"
 
-Merasa kalah wibawa, Ki Son-yeo menoleh kepada ibunya, "*Eomma*[*eomma], ini tidak adil! Son-yeo tidak mau menikah dengan Wang Jeong itu!"
+Ki Son-yeo, merasa kalah wibawa, menoleh kepada ibunya, "*Eomma*[*eomma], ini tidak adil! Son-yeo tidak suka Wang Jeong itu!"
 
 [^eomma]: Eomma 엄마, adalah cara akrab seorang anak memanggil ibunya di masa itu, sama dengan 'Niang' di Zhongyuan. Panggilan yang lebih formal adalah Eomeoni (어머니), yang kurang lebih 'Muqin' (母親).
 
@@ -225,13 +211,90 @@ Tersenyum tipis, ibunya hanya berkata, "Hanya menyanyi, bermain sitar dan menari
 
 Meskipun bagi Ki Son-yeo kata-kata ibunya itu tidak meyakinkan, tetapi ia menyimpan janji gurunya. Ia terpaksa menurut, teringat akan pelajaran gurunya tentang *aliran air sungai*. Namun begitu, diam-diam, ia mulai berpikir, *Yue Nu Jian Fa* itu bagus, ia pasti akan melatihnya dengan lebih sungguh-sungguh. Tetapi baginya urusan ini tidak bisa dihadapi dengan memakai pedang kayu! Diam-diam ia mulai mencari-cari kesempatan untuk mencuri senjata ayahnya atau kakak-kakaknya.
 
-Janji Douluo Haoyu itu bukan omong kosong. Raja Chungsuk memang diangkat menjadi raja, tetapi menuruti peraturan Dinasti Yuan, ia juga terpaksa menjadi *sandera politik* di Dadu sejak tahun 1321 yang lalu, asmpai sekarang belum kembali. Kalau pun akan kembali, pasti tidak dalam waktu dekat. Bagaimana mereka akan melaksanakan pernikahan antara anak-anak itu sementara raja mereka sedang disandera di Dadu?
+Janji Douluo Haoyu itu bukan omong kosong. Raja Chungsuk memang diangkat menjadi raja, tetapi menuruti peraturan Dinasti Yuan, ia juga terpaksa menjadi *sandera politik* di Dadu sejak tahun 1321 yang lalu, sampai sekarang belum kembali. Kalau pun akan kembali, pasti tidak dalam waktu dekat. Bagaimana mereka akan melaksanakan pernikahan antara anak-anak itu sementara raja mereka sedang disandera di Dadu?
 
+
+## *Haengju, April 1324: Belati Rahasia Dan Peralihan Tahta*
+
+Beberapa bulan kemudian, Ki Son-yeo berhasil mencuri belati milik Ki Yun, yang sangat tajam dan terlihat indah di matanya. Ia selalu membawa-bawa belati itu di saku dalam bajunya, diam-diam ia melatih *Yue Nu Jian Fa* ajaran gurunya dengan menggunakan belati ini setiap malam, tanpa setahu orang lain. Tetapi hal semacam ini tentu saja tidak dapat disembunyikannya di hadapan Duoluo Haoyu, yang selalu mengamatinya dari jarak dekat.
+
+Sementara itu, berita tentang penobatan Yesun Temur menjadi Khan dan Kaisar Dinasti Yuan untuk menggantikan Shidibala telah sampai di telinga Douluo Haoyu dan anaknya. Mereka membicarakannya setiap malam. Satu hal yang paling menarik bagi mereka adalah, Yesun Temur sudah dikenal sebagai Khan yang sangat mencintai tradisi asli Mongolia, *bertentangan dengan pandangan Kubilai maupun Khayishan dan Ayurbarwada*. Jelas berbeda dengan Shidibala.
+
+Ayah Yesun Temur adalah Gammala, putra tertua Zhenjin, yang adalah pewaris resmi — putra mahkota pilihan Kubilai Khan, yang sayangnya meninggal sebelum Kubilai sendiri. Zhenjin dikenal sebagai penganut setia Konfusianisme dan jelas beraliran sama seperti Kubilai, bahkan mungkin lebih dalam. Setelah Zhenjin sendiri meninggal, Gammala ditunjuk sebagai *Jinong*[^jinong], tetapi kemudian kalah bersaing dengan adiknya, Temur. Berikutnya, Darmabala dan semua keturunan Kubilai dari sisi ini mendominasi pemilihan Khan maupun Kaisar Dinasti Yuan, membuat Gammala dan putranya, Yesun Temur, tersingkir sama sekali dari persaingan. Tetapi, sebagai Jinong, Gammala memerintah di padang rumput Mongolia dan Gurun Gobi, lalu mengabadikan keagungan Genghis Khan di sana melalui Empat Ordo Agung Mongolia. Setelah Gammala meninggal, Yesun Temur mengambil alih posisinya sebagai Jinong. Selama pemerintahan Khayishan, Ayurbarwada dan Shidibala, Yesun Temur, yang punya tanah sangat luas di utara dan pasukan militer yang kuat, menjadi pangeran yang paling dihormati oleh Majelis Agung Mongolia. Kekuatannya sebagai pemimpin di padang rumput adalah tak tertandingi oleh Khan lain.
+
+[^jinong]: Jinong aa Jinwang (晉王) adalah yang sangat tinggi, yang bisa dijabat oleh seorang bangsawan Dinasti Yuan. Pemegang gelar ini hanya mereka yang punya ikatan keluarga dengan Kubilai.
+
+"Hm, bagaimana reaksi rakyat Zhongyuan?" tanya Douluo Haoyu, memejamkan mata di atas dipannya, "Mereka menyukai Yesun Temur ini?"
+
+"Oh, ini sangat menarik," kata Douluo Jing, tertawa, "Mula-mula banyak orang ragu-ragu, karena pandangan Yesun Temur jelas berbau busuk — sangat fanatik pada cara-cara tradisional Mongolia. Tapi ternyata, sejak awal penobatannya, dia menunjukkan penghargaan kepada semua pejabat suku Han, dan yang menganut aliran ini! Rakyat jelata kemudian terbelah dua, dan banyak yang memuji-muji dia."
+
+Douluo Haoyu tertawa, "Jelas, karena dia naik tahta melalui *kudeta*!"
+
+"Menurut ayah dia ikut dalam *kudeta* berdarah itu?" tanya Douluo Jing.
+
+"Itu sudah pasti," jawab ayahnya, "Kau tadi bilang, siapa — nama pejabatnya itu?"
+
+"Daulat Syah," jawab Douluo Jing. "Dia seorang Islam."
+
+"Oh, benar. Orang ini pasti punya hubungan dengan Walus, utusan Tegshi itu, yang katanya *datang terlambat* untuk memberitahu Shidibala," kata Douluo Haoyu, lagi-lagi tertawa, "Mana ada kejadian seperti itu? Membohongi anak kacil!"
+
+"Nah, ayah keliru," kata Douluo Jing lagi, "Sekarang, ternyata Tegshi, Esen Temur dan yang lain itu dihukm mati — semuanya! Yesun Temur, mengirim pasukan ke Dadu dan Shangdu, untuk menangkap para pejabat yang dianggapnya cenderung memberontak terhadap Shidibala."
+
+"Itu karena dia takut berikutnya orang-orang itu akan membuatnya menjadi 'Kaisar Boneka'!" kata ayahnya. "Nah, sekarang katakan, Daulat Syah itu sekarang diangkat menjadi apa?"
+
+"Pengelola 'Urusan Negara' di Zhongshu Sheng," jawab Douluo Jing, tersenyum samar, memahami maksud ayahnya.
+
+"Nah! Apa kataku?" kata Douluo Haoyu, membuka matanya sambil tertawa, "Kurasa sekarang pasti banyak orang-orang Islam dan pejabat Mongol dari padang rumput Mongolia berkuasa di Zhongshu Sheng dan posisi-posisi penting lainnya, kan? Sebaliknya, orang-orang Han itu, kurasa sangat sedikit yang dilibatkan. Kalau pun ada, pastilah diberi jabatan yang tidak penting!"
+
+Meneliti dengan cermat catatannya, Douluo Jing akhirnya mengangguk. "Ternyata ayah memang benar!"
+
+Tiba-tiba ayahnya bertanya, "Bagaimana dengan raja kita — Wang To itu? Dia dibebaskan?"
+
+"Tidak ada kabar," jawab Douluo Jing, lalu bergumam, "Seharusnya begitu... tapi belum ada kabar..."
+
+Ayahnya kembali memejamkan mata, tampaknya merasa lega, berkata, "Katakan begitu ada kabar."
+
+Douluo Jing hendak mengatakan sesuatu yang lain, tetapi ia melihat ayahnya sudah memejamkan mata rapat-rapat, pertanda tak ingin diganggu. "Raja Chungsuk tentu saja penting," pikirnya, "Ini pastilah karena ayah menguatirkan Shengniang." Tapi baginya Wang To ini kemungkinan besar tidak akan kembali. Meskipun rencana Wang Ko gagal, tapi sekarang ini dia sudah menikahi putri Raja Liang dari Dinasti Yuan, dan sudah memegang gelar sebagai Raja Shen dari Yang[^raja-shen], gelar yang sebelumnya dipegang oleh Raja Chungseon, ayah Wang To. Gelar ini dianugerahkan kepada Chungseon karena mendukung Khayishan. Gara-gara ulah Wang Ko, Raja Chungseon kemudian diasingkan ke Tibet, dan Wang To sendiri disandera di Dadu, meskipun diperlakukan baik-baik.
+
+Bagi Douluo Jing, pengertian tentang 'Wang' ini menjadi berbeda setelah mereka bergabung dengan Dinasti Yuan. Karakter Wang (王) ini memang di Goreyeo dimengeri sebagai 'Raja', tetapi bagi Dinasti Yuan sebenarnya tak lebih dari 'Pangeran'. Sebagai akibatnya, gelar 'Raja Shen dari Yang' itu akan dipandang tinggi oleh orang-orang Goryeo, *setara dengan Raja Chungsuk* sendiri, karena menggunakan karakter 王, yang tidak sama dengan 'Gun' (君), yang dibaca 'Jun' dalam bahasa Han!
+
+[^shen-wang]: Shen Wang (瀋王), "Raja Shen" atau Sim-yang Wang (심양왕) dalam bahasa Goryeo.
+[^yannan-jun]: Yannan Jun (延安君) atau Yeonan Gun (연안군), "Pangeran dari Yeonan".
+
+Sampai di sini, Douluo Jing kemudian berpikir, apa gunanya lagi orang menunggu-nunggu Raja Chungsuk? Bukankah jika Wang Ko pulang, mereka juga sudah punya seorang raja? Jika mereka ingin menolong Ki Son-yeo, bukankah lebih menguntungkan jika Wang Ko yang pulang ke sini?
 
 ---
 
-In 1314 when King Chungseon passed the throne to his son Ratnashri (King Chungsuk), Öljeyitü was installed as Crown Prince and sent to the Yuan court as a hostage by rule. However, when King Chungsuk fathered Buddhashri (King Chunghye), Öljeyitü forced to abdicate from crown prince, but King Chungseon transferred his post of King of Shen to him instead. The title of King of Shen was originally given to King Chungseon by Khayishan (Külüg Khan) after his support of Khayisan's succession in 1307. Öljeyitü married with a daughter of Sungshan (松山 songshan), King of Liang (粱王) of the imperial family.
+*A weariness settled over him. This constant chess game of power was exhausting, but for Shengniang's future, he had to play.*
+- Good idea, here it goes:
 
-When Sidibala (Gegeen Khan) ascended to the throne in 1320, Öljeyitü began a campaign to become the King of Goryeo. By his scheme, the Khan banished Chungseon to Tibet in 1320 and interned King Chungsuk in 1321. However, Sidibala was assassinated in 1323 and Öljeitü's plan was aborted.
+Berpikir sampai di sini, ia kemudian bernafas lega. Permainan catur yang tak pernah berakhir ini memang sangat melelahkan, tetapi demi masa depan Shengniang, ia memang harus memainkannya.
+
+Sayangnya, beberapa bulan kemudian, keadaan ini berubah lagi. Ia menerima kabar dari sahabat-sahabatnya di Zhongyuan, bahwa Kaisar Yesun Temur telah memutuskan untuk membebaskan Wang To. Saat ini Wang To sedang bersiap-siap untuk pulang ke Goryeo.
+
+Ia segera memberitahu ayahnya, "Ayah, Raja Chungsuk sedang dalam perjalanan pulang. Bukankah sudah saatnya kita bicara dengan Ki Ja-oh untuk membatalkan pertunangan Shengniang?"
+
+Di luar dugaannya, ayahnya berkata sambil tertawa, "Kalau kau bisa, lakukan saja. Tapi aku lebih suka jika kau mulai sekarang menyuruh Shengniang menghafalkan ini..." Ayahnya lalu mengeluarkan sebuah buku yang ditulisnya sendiri dari bawah bantalnya.
+
+Terkejut, Douluo Jing hendak bertanya, tetapi kemudian matanya terbelalak lebar, berseru, "*Xianglong Shiba Zhang*[^xianglong-shiba-zhang]?" ketika membaca judul buku yang ditulis ayahnya itu, "Ayah bukankah ini... ilmu silat Pendekar Besar Guo?"
+
+[^xianglong-shiba-zhang]: Xianglong Shiba Zhang (降龍十八掌), "18 Jurus Penakluk Naga", adalah jurus andalan Kai Pang, yang diturunkan oleh Hong Qigong kepada Guo Jing. Jurus yang sama dipopulerkan oleh ketua Kai Pang jauh sebelumnya, Qiao Feng.
+
+"Betul," jawab ayahnya, "Kau sendiri memang tidak mempelajarinya. Kulihat kau memang tidak perlu mempelajari ilmu ini. Tetapi saat ini Shengniang sedang dalam keadaan terdesak. Kita harus memberinya sesuatu sebagai bekal yang bisa dipelajari di kemudian hari, setelah dia lebih dewasa. Sekarang tenaga dalamnya belum cukup kuat."
+
+Menjadi bingung, Douluo Jing bertanya, "Ayah, ini..." Saat itu ayahnya terbatuk berkali-kali. Ia segera membantu melonggarkan pernafasannya. Belakangan ini kondisi kesehatan ayahnya semakin memburuk setelah mendekati sembilan puluh lima tahun. Ia masih berharap ayahnya bisa mencapai seratus tahun, meskipun tahu bahwa ayahnya selalu mengatakan bahwa semua manusia pasti akan mati, dan hal itu adalah satu-satunya yang paling pasti di dunia ini.
+
+Setelah merasa pernafasannya lebih baik, Douluo Haoyu berkata, "Jangan tunda lagi, besok kau bisa mulai mengajarkan semuanya ini. Pendeknya, suruh di menghafalkan semuanya. Tak perlu dilatih dulu."
+
+Douluo Jing tentu saja akan melaksakan perintah ayahnya, tetapi ia melihat buku ini jelas ditulis oleh ayahnya belum lama ini. Ia memang tahu ayahnya mewarisi ilmu itu dari Yelu Qi, sebelum ketua Kai Pang itu tewas, dan ayahnya melarikan diri sampai ke Goryeo. Tetapi ilmu semacam ini umumnya tidak diwariskan secara sembarangan kepada orang lain, karena itu sejauh ini ia sendiri pun tidak pernah diajari ilmu ini. Sekarang ayahnya menyuruhnya membacakan isi buku ini kepada Ki Son-yeo, maka ia sendiri pun sudah pasti akan bisa mempelajarinya. Berarti ayahnya memang bermaksud menurunkan ilmu ini secara lebih terbuka sekarang.
+
+Setahu Douluo Jing, bahkan Yang Guo, yang boleh dibilang pelindung Kai Pang, tidak menguasai ilmu ini! Ini berarti ayahnya memandang ada hal lain yang jauh lebih penting saat ini, selain sekedar menyelamatkan hidup Ki Son-yeo! Ia sedang bertanya-tanya dalam hati, apa sebenarnya yang sedang dipikirkan ayahnya?
+
+Sayangnya, kesehatan ayahnya yang terus menurun menyebabkan dirinya tidak tega bertanya lebih jauh. Keesokan harinya, ia mulai membacakan buku itu untuk dihafalkan Ki Son-yeo, dan ia sendiri pun ikut menghafalkannya sementara membaca. Sambil melakukannya, otaknya juga sedang berputar, mencari jalan lain untuk membatalkan perjodohan Ki Son-yeo dengan Wang Jeong.
+
+---
+
+[Berikutnya, Bagian 2: Peri Kecil Terbang Di Angkasa](./part2.md)
+
 
 
