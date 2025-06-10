@@ -50,42 +50,6 @@ Here's the historical facts found after this:
 - 4 October 1323, Yesün Temür, cousin of Gegeen Khan, becomes emperor of the Yuan dynasty.
 - The Comprehensive Institutions of the Great Yuan is promulgated, consisting of 2,400 legal documents divided into 4 categories
 
-*Then our narrative should be:*
-
-Beberapa bulan kemudian, Ki Son-yeo berhasil mencuri belati milik Ki Yun, yang sangat tajam dan terlihat indah di matanya. Ia selalu membawa-bawa belati itu di saku dalam bajunya, diam-diam ia melatih *Yue Nu Jian Fa* ajaran gurunya dengan menggunakan belati ini setiap malam, tanpa setahu orang lain. Tetapi hal semacam ini tentu saja tidak dapat disembunyikannya di hadapan Duoluo Haoyu, yang selalu mengamatinya dari jarak dekat.
-
-Sementara itu, berita tentang penobatan Yesun Temur menjadi Khan dan Kaisar Dinasti Yuan untuk menggantikan Shidibala telah sampai di telinga Douluo Haoyu dan anaknya. Mereka membicarakannya setiap malam. Satu hal yang paling menarik bagi mereka adalah, Yesun Temur sudah dikenal sebagai Khan yang sangat mencintai tradisi asli Mongolia, *bertentangan dengan pandangan Kubilai maupun Khayishan dan Ayurbarwada*. Jelas berbeda dengan Shidibala.
-
-Ayah Yesun Temur adalah Gammala, putra tertua Zhenjin, yang adalah pewaris resmi — putra mahkota pilihan Kubilai Khan, yang sayangnya meninggal sebelum Kubilai sendiri. Zhenjin dikenal sebagai penganut setia Konfusianisme dan jelas beraliran sama seperti Kubilai, bahkan mungkin lebih dalam. Setelah Zhenjin sendiri meninggal, Gammala ditunjuk sebagai *Jinong*[^jinong], tetapi kemudian kalah bersaing dengan adiknya, Temur. Berikutnya, Darmabala dan semua keturunan Kubilai dari sisi ini mendominasi pemilihan Khan maupun Kaisar Dinasti Yuan, membuat Gammala dan putranya, Yesun Temur, tersingkir sama sekali dari persaingan. Tetapi, sebagai Jinong, Gammala memerintah di padang rumput Mongolia dan Gurun Gobi, lalu mengabadikan keagungan Genghis Khan di sana melalui Empat Ordo Agung Mongolia. Setelah Gammala meninggal, Yesun Temur mengambil alih posisinya sebagai Jinong. Selama pemerintahan Khayishan, Ayurbarwada dan Shidibala, Yesun Temur, yang punya tanah sangat luas di utara dan pasukan militer yang kuat, menjadi pangeran yang paling dihormati oleh Majelis Agung Mongolia. Kekuatannya sebagai pemimpin di padang rumput adalah tak tertandingi oleh Khan lain.
-
-[^jinong]: Jinong aa Jinwang (晉王) adalah yang sangat tinggi, yang bisa dijabat oleh seorang bangsawan Dinasti Yuan. Pemegang gelar ini hanya mereka yang punya ikatan keluarga dengan Kubilai.
-
-"Hm, bagaimana reaksi rakyat Zhongyuan?" tanya Douluo Haoyu, memejamkan mata di atas dipannya, "Mereka menyukai Yesun Temur ini?"
-
-"Oh, ini sangat menarik," kata Douluo Jing, tertawa, "Mula-mula banyak orang ragu-ragu, karena pandangan Yesun Temur jelas berbau busuk — sangat fanatik pada cara-cara tradisional Mongolia. Tapi ternyata, sejak awal penobatannya, dia menunjukkan penghargaan kepada semua pejabat suku Han, dan yang menganut aliran ini! Rakyat jelata kemudian terbelah dua, dan banyak yang memuji-muji dia."
-
-Douluo Haoyu tertawa, "Jelas, karena dia naik tahta melalui *kudeta*!"
-
----
-
-*Small correction here, the surname 'Duoluo' was a typo all along, it should be "Douluo" (斗罗), and that isn't a common surname, he was invented it. He actually was a child found by Guo Jing and Huang Rong during the siege in the north, while Guo Jing still following Genghis Khan. Let's continue the narrative:*
-
-"Menurut ayah dia ikut dalam *kudeta* berdarah itu?" tanya Douluo Jing.
-
-"Itu sudah pasti," jawab ayahnya, "Kau tadi bilang, siapa — nama pejabatnya itu?"
-
-"Daulat Syah," jawab Douluo Jing. "Dia seorang Islam."
-
-"Oh, benar. Orang ini pasti punya hubungan dengan Walus, utusan Tegshi itu, yang katanya *datang terlambat* untuk memberitahu Shidibala," kata Douluo Haoyu, lagi-lagi tertawa, "Mana ada kejadian seperti itu? Membohongi anak kacil!"
-
-"Nah, ayah keliru," kata Douluo Jing lagi, "Sekarang, ternyata Tegshi, Esen Temur dan yang lain itu dihukm mati — semuanya! Yesun Temur, mengirim pasukan ke Dadu dan Shangdu, untuk menangkap para pejabat yang dianggapnya cenderung memberontak terhadap Shidibala."
-
-"Itu karena dia takut berikutnya orang-orang itu akan membuatnya menjadi 'Kaisar Boneka'!" kata ayahnya. "Nah, sekarang katakan, Daulat Syah itu sekarang diangkat menjadi apa?"
-
-
-
-
-
 ---
 
 In 1323 when Shidebala Gegeen Khan (Emperor Yingzong) was assassinated by Grand Censor Tegshi and Esen Temur, the rebellious group welcomed Yesün Temür since his mother was Buyan Kelmish of the Khunggirad clan. According to the official history of the Yuan, Yesün Temür caused Tegshi's envoy Walus to be seized and sent notice of the plot to Shidibala Khan, but the messengers arrived too late.[4]
@@ -103,9 +67,51 @@ In addition to Dawlat Shah, there were two Muslims, Ubaidullah and Bayanchar, wh
 
 ---
 
-**Feilong Zai Tian 飛龍在天**
+### Xiang Long Shiba Zhang (降龍十八掌)
 
-Xiang Long Shiba Zhang (降龍十八掌):
+1. **Kanglong You Hui (亢龍有悔)**
+   "Naga di langit merasa menyesal", atau "Naga sombong merasa menyesal". Karena 'Naga' adalah simbol kaisar atau pajabat tinggi, terutama sekali jika dihubungkan dengan 'Kang', yang bisa berarti 'arogan', 'tinggi' atau terlalu percaya diri, berlebihan — 'menyesal' di sini apa yang akan dilakukannya? 
 
-The famous and fearsomely powerful martial art of the Beggars Clan. It was created by the book, I Ching. The second stroke in the 18 Dragon-Subduing Palms (飛龍在天) is based on the Chinese adage that a dragon in the sky will be able to spot men of greatness below it. This suggests that the dragon, from its elevated position, will have an overview on the affairs of the world hence being able to keep track of mortal ongoing and spot men of great deeds and virtue.
+2. **Feilong Zai Tian 飛龍在天**
+   The famous and fearsomely powerful martial art of the Beggars Clan. It was created by the book, I Ching. The second stroke in the 18 Dragon-Subduing Palms (飛龍在天) is based on the Chinese adage that a dragon in the sky will be able to spot men of greatness below it. This suggests that the dragon, from its elevated position, will have an overview on the affairs of the world hence being able to keep track of mortal ongoing and spot men of great deeds and virtue.
+
+3. **Jianlong Zai Tian 見龍在田**:
+   Here the effects of the light-giving power begin to manifest themselves. In terms of human affairs, this means that the great man makes his appearance in his chosen field of activity. As yet he has no commanding position but is still with his peers. However, what distinguishes him form the others is his seriousness of purpose, his unqualified reliability, and the influence he exerts on his environment with out conscious effort. Such a man is destined to gain great influence and to set the world in order. Therefore it is favorable to see him.
+
+   "Di sinilah pengaruh kekuatan pemberi cahaya mulai terwujud. Dalam konteks urusan manusia, ini berarti bahwa orang hebat itu muncul di bidang kegiatan yang dipilihnya. Sampai saat ini ia belum memiliki posisi komando tetapi masih bersama dengan rekan-rekannya. Namun, yang membedakannya dari yang lain adalah keseriusannya dalam tujuan, keandalannya yang tak terbatas, dan pengaruh yang ia berikan pada lingkungannya tanpa usaha yang sadar. Orang seperti itu ditakdirkan untuk mendapatkan pengaruh besar dan mengatur dunia. Oleh karena itu, sangatlah baik untuk melihatnya."
+
+
+---
+
+1. Yang Rui (楊睿):
+   Rui (睿): Means "wise," "perceptive," or "astute." It suggests intelligence, foresight, and a keen understanding
+   
+2. Yang Jun (楊俊):
+   Jun (俊): Means "handsome," "talented," "outstanding," or "heroic." It implies exceptional ability and admirable qualities.
+
+---
+
+*With Ki Son-yeo now gaining deeper insights into the philosophical and political meanings of the Xianglong Shi Ba Zhang stances, how will this knowledge begin to shape her perception of her own future, particularly regarding her impending marriage and potential role in the Goryeo court?*
+
+1. Ki Son-yeo's future is yet to come, it will be shaped gradually in the nexts encounters.
+2. She never like the marriage idea from the very start.
+3. Her role in the Goryeo court will be defined much later, when she becomes influential Concubine/Empress of Toghon Temur.
+
+In the next section, we will oncover a secret story that never been touched deeply by Jin Yong, at least he just mentioned it like a fairy tale. We will *demistify* exactly one character in Yitian Tulong Ji, who seems to be more or less like a divine 'goddess' — the Yellow-Robed Maiden, through a simple, ralatable and believable background.
+
+When Yang Guo kill Mongke Khan, followed by the meeting in Huashan, it can be safely assumed to be somewhere near 1260 or 1261, when Yang Guo himself was already around 36-38, and what about Xiao Longnu? She was, logically, over 40! Then, they dissappear without a trace! That's logical! They want to build their own family, unlike Guo Jing's family, who already established, Yang Guo and Xiao Longnu's private life has just started!
+
+We will say that both of them, with Xiao Longnu already over 40, still managed to leave two sons. Each born in 1263 and 1265. Then it can be said — if both married at young age (20s) — in around 1284 - 1290, they already have children, with surnames 'Yang', continuing Yang Guo's decendants. It will then becoming relatable to the presence of the Yellow-Robed Maiden, who, in this case, was about 5 years older than Zhang Wuji! She supposed to be born at around 1325-1327. Would be reasonable if her father was one of Yang Guo's grandchildren, with a surname "Yang'! Thus, she herself was Yang Guo's great granddaughter!
+
+In our current narrative, **Yang Dao** is the one with 'Yang' family name!
+
+---
+
+**Highlight in 1325:**
+
+- Bronze "thousand-ball thunder-cannons" on four wheeled carriages appear in the Yuan dynasty.
+
+---
+
+
 

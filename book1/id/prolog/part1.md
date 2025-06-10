@@ -263,11 +263,6 @@ Bagi Douluo Jing, pengertian tentang 'Wang' ini menjadi berbeda setelah mereka b
 
 Sampai di sini, Douluo Jing kemudian berpikir, apa gunanya lagi orang menunggu-nunggu Raja Chungsuk? Bukankah jika Wang Ko pulang, mereka juga sudah punya seorang raja? Jika mereka ingin menolong Ki Son-yeo, bukankah lebih menguntungkan jika Wang Ko yang pulang ke sini?
 
----
-
-*A weariness settled over him. This constant chess game of power was exhausting, but for Shengniang's future, he had to play.*
-- Good idea, here it goes:
-
 Berpikir sampai di sini, ia kemudian bernafas lega. Permainan catur yang tak pernah berakhir ini memang sangat melelahkan, tetapi demi masa depan Shengniang, ia memang harus memainkannya.
 
 Sayangnya, beberapa bulan kemudian, keadaan ini berubah lagi. Ia menerima kabar dari sahabat-sahabatnya di Zhongyuan, bahwa Kaisar Yesun Temur telah memutuskan untuk membebaskan Wang To. Saat ini Wang To sedang bersiap-siap untuk pulang ke Goryeo.
