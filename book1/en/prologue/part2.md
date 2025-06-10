@@ -163,7 +163,7 @@ Meanwhile, in Dadu, bronze cannons mounted on four-wheeled carriages began to be
 
 ---
 
-In the Altai Mountains, Kusala drank airag with round bread and roasted lamb. Across from him, Mailaiti, his wife, accompanied their son as he played. The boy, now five years old, seemed bright and cheerful, greatly enjoying the stories his mother told about the kung fu heroes of Zhongyuan.
+In the Altai Mountains, Kusala drank airag with round bread and roasted lamb. Across from him, Babusha, his wife, accompanied their son as he played. Babusha was not Toghon's birth mother but treated him like her own child. She was also currently pregnant. The boy, now five years old, seemed bright and cheerful, greatly enjoying the stories his mother told about the kung fu heroes of Zhongyuan.
 
 Toghon Temür asked, for the umpteenth time, "So these people can fly?"
 
@@ -183,15 +183,17 @@ But his mother quickly added, "Now, you mustn't try it yourself—you'll definit
 
 "Why?"
 
-"Because you're still small," Mailaiti said again, taking a piece of bread, filling its center with small slices of meat, and offering it to Toghon. "Now, eat a lot so you'll grow quickly."
+"Because you're still small," Babusha said again, taking a piece of bread, filling its center with small slices of meat, and offering it to Toghon. "Now, eat a lot so you'll grow quickly."
 
-His father burst into laughter. "Yes, and then we'll enter Khanbaliq (Dadu, modern Beijing). You can *sit* there."
+His father burst into laughter. "Yes, and then we'll enter Khanbaliq (Dadu, modern Beijing). You can sit there."
 
-Mailaiti clucked her tongue in annoyance. "You're ruining the mood."
+Babusha clucked her tongue in annoyance. "You're ruining the mood."
 
-"Why? Is it not allowed?" Kusala said, still laughing. "Wasn't my brother appointed Prince of Huai? Why shouldn't my son sit on the throne, which should rightfully belong to our family? It's because *your father* got involved that we're exiled now."
+"Why? Is it not allowed?" Kusala said, still laughing. "Wasn't my brother appointed Prince of Huai? Why shouldn't my son sit on the throne, which should rightfully belong to our family? It's because Mailaiti's father got involved that we're exiled now."
 
 Mailaiti's father was Temüder, who had indeed supported Dagi's idea to remove Kusala and his younger brother, Tugh Temür, from the capital, simply because they were not born to a Khongirad Khatun.
+
+"But now Mailaiti's father is dead, and your formidable grandmother is also gone, even Mailaiti herself is dead," Babusha said, a hint of exasperation in her voice. "Why are we talking about this again? Aren't we still respected here? For me, that's enough."
 
 "That's enough for you, not for me," Kusala countered. "For me, they all have to pay dearly after this."
 
