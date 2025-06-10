@@ -15,5 +15,5 @@ Tossing a lump of meat into the cage of one of his new leopards, Yesün Temür s
 
 He knew there was a bad habit of wasteful spending within his ranks at the moment, buying expensive stones imported by foreign merchants and sold here at ten times their original price. He also knew perfectly well that many poor people were starving in the southern regions. He deeply detested such practices.
 
-Hearing the decision, Daulat Shah, Ubaidullah, and Bayanchar immediately bowed respectfully, assenting, and prepared to leave. But Yesün Temür raised his hand. "Hey, one more thing. From now on, don't buy those extremely expensive stones anymore! And I also officially forbid Lamas (Tibetan monks) from entering here starting now. Prepare an official announcement for this. They only add to the chaos and damage the good name of the Yuan Dynasty!"
+Hearing the decision, Daulat Shah, Ubaidullah, and Bayanchar immediately bowed respectfully, assenting, and prepared to leave. But Yesün Temür raised his hand. "Hey, one more thing. From now on, don't buy those extremely expensive stones anymore! And I also officially forbid Lamas (Tibetan monks) from entering here starting now. Prepare an official announcement for this. They only add to the chaos and damage the reputation of the Yuan Dynasty!"
 
