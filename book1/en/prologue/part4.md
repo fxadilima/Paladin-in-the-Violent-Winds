@@ -11,3 +11,16 @@ Without saying anything, the woman just pointed her finger towards the western w
 
 However, at that moment, the soldiers huddled near the wall turned to move elsewhere. Qi Shengniang managed to read an inscription on the wall, seemingly written in blood, accompanied by several handprints: "*Hunyuan Pili Shou* (Primordial Unity Thunderbolt Hand) Cheng Kun killed these people."
 
+Qi Shengniang's brow furrowed. "Who would kill so many people and then leave their name there? There's definitely something wrong!" She herself had only killed two imperial soldiers, and she was forced to flee to Zhongyuan! Judging by the number of law enforcers present, it seemed the entire household was dead. "Who is this 'Cheng Kun'? His title is so grand — Thunderbolt Hand! Shifu never spoke of him."
+
+One of the men standing near her was talking to his friend, "Something like this also happened in Ling'an. The message was exactly the same!"
+
+Another person chimed in, "My brother lives in Sichuan. He said it happened there too; now I'm seeing it for myself."
+
+"My friend said the killer used the Qi Shang Quan (Seven Injury Punch) from the Kongtong Sect!" another person stated. "If this one's the same, then it's the same killer."
+
+"How would your brother know that? Do these government investigators know anything about Qi Shang Quan or the Kongtong Sect?"
+
+"The Kongtong Sect itself participated in the investigation in Sichuan," the first man said. "They then denied that they did it!"
+
+"Hmm," Qi Shengniang thought. "They might confiscate people's weapons, but something like this can still happen, without using any weapons at all!" She suddenly grew very curious, wanting to know more about this matter. Then she suddenly recalled the conversation between Andreas and his friend in the tavern a few days earlier. "This seems like a very evil martial art. Could it be what they called the Mo Jiao...?" But then she thought again, "Didn't the Kongtong Sect themselves say this martial art originated from their sect? But what's the point of the killer leaving Cheng Kun's name?"

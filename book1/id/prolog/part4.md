@@ -27,5 +27,8 @@ Orang lain lagi menimpali, "Saudaraku tinggal di Sichuan. Katanya di situ juga t
 
 "Orang Kongtong Pai sendiri yang ikut menyelidiki di Sichuan," kata orang yang pertama mengatakannya, "Mereka lalu menyangkal bahwa mereka yang melakukannya!"
 
-"Hm," pikir Qi Shengniang, "Mereka bolah saja menyita senjata orang, tapi hal semacam ini tetap bisa terjadi, tanpa menggunakan senjata apa pun!" Ia tiba-tiba sangat penasaran, ingin tahu lebih banyak tentang urusan ini.
+"Hm," pikir Qi Shengniang, "Mereka bolah saja menyita senjata orang, tapi hal semacam ini tetap bisa terjadi, tanpa menggunakan senjata apa pun!" Ia tiba-tiba sangat penasaran, ingin tahu lebih banyak tentang urusan ini. Lalu tiba-tiba ia teringat akan pembicaraan Andreas dan temannya di kedai itu, beberapa hari sebelumnya. "Ini sepertinya aliran kungfu yang sangat jahat. Apa mungkin yang disebut *Mo Jiao* itu...?" Tetapi kemudian ia berpikir lagi, "Bukankah Kongtong Pai sendiri sudah mengatakan bahwa kungfu ini dari aliran mereka? Tapi apa gunanya pembunuh itu mencantumkan nama Cheng Kun?"
+
+
+
 
