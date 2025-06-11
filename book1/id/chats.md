@@ -40,7 +40,7 @@ Meanwhile, our 5 years old (would later on be) Empress Qi was sill in Haengju, h
 
 ---
 
-
+By this time he already showed a wide range of scholarly and artistic interests and had surrounded himself with many distinguished Chinese literati and artists. As the persecuted sons of Khayishan Külüg Khan, Tugh Temür and Kusala still enjoyed a measure of sympathy among the Borjigin princes and, more importantly, the lingering loyalty of some of their father's followers who had survived various political purges.
 
 
 ---
@@ -54,4 +54,88 @@ Meanwhile, our 5 years old (would later on be) Empress Qi was sill in Haengju, h
 3. Ki Son-yeo's Reaction to the Market Incident: While her attention is on her teacher, what is her five-year-old perspective of this small skirmish? Does she show fear, curiosity, or a tiny spark of admiration for her teacher's unseen intervention? This could further establish her character traits early on. Perhaps she just notices the officer stumble and looks at her teacher with innocent wonder.
 
 4. The "Holy Maiden" Name: You've explained the meaning of "Qi Shengniang" in a footnote, but within the narrative, could there be a brief, tender moment where Duoluo Haoyu explains why he gave her that name? This would deepen their bond and foreshadow her future importance. It could be something as simple as him saying, "Because you have a pure spirit, like a little Holy Maiden," or "You have the potential to bring righteousness to the world, my little Shengniang."
+
+---
+
+Beside El Temur, another powerful charismatic figure in 1327 is [Bayan of Merkid](https://en.wikipedia.org/wiki/Bayan_of_the_Merkid).
+
+Some notable quote found in Wikipedia is this:
+
+"During the reign of Külüg Khan (Emperor Wuzong of Yuan), Bayan was appointed to a number of positions in the court. He became a Darughachi in 1309, and then held several provincial posts during the reign of Ayurbarwada Buyantu Khan (Emperor Renzong of Yuan), namely the Tong Pingzhangshi (vaguely, the "vice prime minister") of Jiangzhe province, Jiangxi province and Henan province. It is said that he did not tolerate any local bullies who took advantage of the poor."
+
+*It give us*:
+
+1. Most likely, Han people in Kaifeng or the entire Henan at that time tends to like Bayan.
+2. Although, he also opposed Yesun Temur reign (secretly), due to his loyalty to Khayishan.
+3. At this point, Bayan has not yet act ruthlessly against a number of Han people.
+4. Thus, the people in Henan, or specifically Kaifeng, have no tendencies to rebel!
+
+**Another point:**
+
+- Both Chaghan Temur and Zhu Yuanzhang has not yet even born at this moment, much less Cheng Youliang, even more unlikely Zhang Wuji :D (the name 'Susu' is actually refers to his mother, and the youngster seen by Ki Son-yeo earlier was his maternal uncle, Yin Yewang)
+- Peng Yingyu has not proclaims his own version of Ming Jiao teaching, which would led to the rise of Hongjin Qiyi.
+
+---
+
+But, Ki Son-yeo does not aware, during the Yuan Dynasty, Han Chinese were strictly forbidden from carrying weapons. This policy was part of a broader system of social control and classification aimed at ensuring the Mongol rulers' authority and preventing uprisings. Han Chinese were also restricted from riding horses, speaking the Mongol language, and intermarrying with Mongols. 
+
+**Here's a more detailed explanation:**
+
+- *Control and Identification:*
+  The Yuan Dynasty's class system, with the Han Chinese at the bottom, was a tool for control. By forbidding weapons, congregating, and other activities, the rulers could easily identify and monitor the Han Chinese population. 
+
+- *Military Registers*:
+  While Han Chinese were generally forbidden from possessing weapons, those on military registers could be issued weapons when needed for military campaigns, but were required to return them upon completion. 
+
+- *Preventing Uprisings*:
+  The restrictions on Han Chinese, including the ban on weapons, were designed to prevent them from forming rebellions or engaging in organized resistance against the Mongol rulers. 
+
+- *Beyond Racial Motivation*:
+  While the ban on weapons was partly motivated by racial differences, the primary aim was to maintain social order and control over the Han Chinese population, which made up a significant portion of the empire. 
+
+- Other Restrictions:
+  The Han Chinese were also prohibited from riding horses, speaking Mongol, and intermarrying with Mongols, further reinforcing their subordinate status within the Yuan social structure. 
+
+---
+
+In my previously written narrative, in the prologue, the young Ki Son-yeo enters Shangdu in 1328, during a chaos, caused by the sudden death of Emperor Yesun Temur. But now, although it was quite compeling, let us make it better. Make Yin Tianzheng actually supports the El Temur and General Bayan, who he see as a potential help for the common Han people, especially because Tugh Temur's strong confucian oriented and Han oriented alliances.
+
+---
+
+The previously mentioned misson of 'Xiaojie' (actually, Yin Susu) to Henan, is nonetheless to escort gifts for General Bayan, who actually (historically) is Toqto'a's uncle. Toqto's himself, currently is under his uncle's guidance, from military's side. But his own father has a very different political stance than Bayan (more Confucianist and Han oriented). While Yin Susu do her duty and go to Henan, Yin Yewang also do similar duty, approaching **Tugh Temur**, who currently live in Jiangling.
+
+Jin Yong, somewhat simplified his narrative, not telling what actually happened in Guangming Ding during these period, and simply mentioned this via Xie Xun and Tajkis's story much later on, when retelling their own backstories. In this case, Jin Yong's version, thus, also simplified the intricate political alliances and power plays within the Yuan court. He said, at some point, that Yang Dingtian was really meant to rebel early on. But, seeing the current emperor's stance and common people's sentiments, can he, as a Ming Jiao's leader and regious motivator, spiritual leader, really rebel, saying 'this is for the sake of common people'? I guess he definately cannot!
+
+Ming Jiao, as a spiritual movement, *concern for the well-being of common people*, yes! But it is not the same as rebel against the effective government! Yang Dingtian might be willing to act more actively, unlike those other religion groups, Shaolin or Wudang, who will tend to avoid 'worldly matters' and live in seclutions, but Yang Dingtian still would not encourage people to rebel! Not even Mani himself would do such thing! Mani also being persecuted, probably as rebel, but I personaly doubt that he actually rebelled against Persian government.
+
+---
+
+*It suggests a phase of strategic engagement and perhaps even observation, before the later, more overt "Red Turban" rebellions.*
+- Historically, Ming Jiao itself, *never* suggest any kind of rebellions, but it was **Peng Yingyu**, the one who teach a version of Ming Jiao's doctrine about Mingwang, and then interpreted by common people as something else. Apparently, whether in real history or just in this story, Peng Yingyu was deliberately allow such interpretation, that would eventually lead to wide-spread rebellion, and Hongjin Qiyi was born (his movement, the red headband).
+
+---
+
+- Ki Son-yeo's first meeting with Ming Jiao's official will be Tajkis, Yang Xiao and Fan Yao.
+- Although Yin Yewang and Yin Susu are also a Ming Jiao's disciple, but their membership were merely due to their identities as Yin Tianzheng's children. They know absolutely *nothing* about Ming jiao's teaching, except those related to physical experiences, like not eating meat or drinking wine.
+- Real Manichaeism teaching, while not explicitly *prohibit* marriage, but explicitly stated that sexual activities are sins. So, in practice, *only* those of the high priests of Ming Jiao live in celibate. Even Yin Tianzheng or Yang Dingtian himself does not. We can see this as the secular life of their followers, known as 'the hearers', as compared to celibate lives of their 'Bishops' and monks, like in any other religions. Buddhist folowers also eat meat, while a monk does not. A buddhist believers can married, but no for buddhist nuns or monks. St. Agustine was also the followers, before converted to Christianity, but he consider himself as 'just a hearer'. He even has a concubine, who give him a son.
+- Commonly, in Jin Yong's world, Ming Jiao was also called 'Mo Jiao', which means 'Demonic Teachings', while the original name was 'Moni Jiao'. We simply write bot versions, as the following continuation text:
+
+
+---
+
+Untuk sementara kita mematok tahun kelahiran Xie Xun di sekitar 1285:
+
+- Sekitar tahun 1327, ia berusia sekitar 45 tahun. Membuatnya punya anak sekitar umur 27 tahun. Anaknya mati dibanting Cheng Kun ketika masih bayi. Menurut cerita Xie Xun sendiri, jika masih hidup, anak itu pasti sudah berusia sekitar 18 tahun, ketika menjelang/setelah Zhang Wuji dilahirkan (1332). (Bab 7, page 21).
+
+---
+
+**Cabai jawa (Piper retrofractum Vahl)**
+
+---
+
+In Chapter 7 of the original Jin Yong's narrative, we can find Xie Xun said that his son, if still alive, would be 18 years old now (that was just after Zhang Wuji was born, we make Zhang Wuji born in 1332). Thus, he was born around 1314, almost the same as Ki Son-yeo and Toqto'a.
+
+For years, Xie Xun has been trying to take revenge to Cheng Kun, who murder his family, but did not succeed, because Cheng Kun was already hide in Shaolin Temple, under the name Yuanzhen Dashi, as a monk!
+
+Jin Yong tell the story via another characters, but we can insert them here:
 
