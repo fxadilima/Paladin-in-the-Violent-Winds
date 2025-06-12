@@ -26,9 +26,9 @@ Ki Son-yeo then walked to the right, passing by Douluo Jing, who was also consid
 
 Douluo Haoyu's old eyes lit up, as he said, "Shengniang, you are too fixated on *ways*. Actually, Shifu doesn't do it that way either. There are many *ways* to do things, the most correct is *Wu Wei*[^wu-wei]."
 
-Ki Son-yeo looked at his master curiously. "Wu Wei?" paused, then asked, "Shifu, *dizi"[^dizi] doesn't understand."
+Ki Son-yeo looked at his master curiously. "Wu Wei?" paused, then asked, "Shifu, *dizi*"[^dizi] doesn't understand."
 
-[wu-wei]: Wu Wei (無為), this can be translated as "effortless".
+[^wu-wei]: Wu Wei (無為), this can be translated as "effortless".
 [^dizi]: Dizi (弟子), "Disciple". This is how a disciple addresses himself in front of his master.
 
 "Now, you see, Shifu is old now," Douluo Haoyu said, laughing. "Your uncle, of course, is much stronger. How could Shifu trip him?"
