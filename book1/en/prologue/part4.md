@@ -147,3 +147,86 @@ Qi Shengniang abandoned her intention to greet him when one of Toqto'a's guards 
 
 "Alright, I know," the boy replied, then immediately turned to leave the place.
 
+From a distance, she secretly observed Toqto'a and his guards crossing the town square and approaching a place that seemed filled with esteemed individuals. From among those people, a tall, burly man then stood up, greeting him with a beaming face and patting his shoulder. He seemed to tell the boy to sit beside him. Soon after, he stood to say something to the person sitting behind a table, giving execution orders. At that moment, Qi Shengniang heard the town residents greet the tall, burly man with the title "Wangye," meaning 'Prince' or 'King'.
+
+In the past, when someone was called 'Wang,' this term indeed referred to the highest ruler of a state, but ever since Qin Shi Huang established the empire in Zhongyuan, 'Wang' was a term for the highest official in a region, and did not truly mean 'King.' From this, Qi Shengniang concluded that the tall, burly man was the governor of Henan, General Bayan. Could that boy be his son? But in Qi Shengniang's view, General Bayan was a bit too young to be Toqto'a's father.
+
+While she was still pondering this riddle, her eyes caught sight of a young woman, about seventeen or eighteen years old, passing by with two older men. At that time in Zhongyuan, many tribes from outside the Great Wall adorned cities and provinces like Henan. And the girl was dressed in what seemed to be Persian attire. Her body was slender, her footsteps very light; she seemed to be a martial arts expert, as Qi Shengniang saw a long sword hanging at her waist.
+
+In her entire life, Qi Shengniang had never seen a woman as beautiful as the one she saw then. The girl's hair was jet black, slightly wavy and very beautiful. Her skin was pure white and as smooth as porcelain. Her face was like a delicate, small melon seed. Her eyes were dark blue, her nose thin and prominent, typical of Persians. Her demeanor was far from flirtatious, even appearing somewhat cold, although the two men with her were clearly attracted to her. Even Qi Shengniang, who didn't know them at all, could see it. Most surprisingly, one of those men was clearly Yang Xiao!
+
+At that moment, Qi Shengniang heard Yang Xiao say in a low voice, "Fan Xiongdi (Brother Fan), I think this person is dangerous. What do you think?"
+
+The man called 'Brother Fan' had a handsome face and was about twenty years old, making Qi Shengniang's heart pound inexplicably. The young man was staring intently at the girl walking beside him and seemed a bit startled by the question. But the next second, he replied, also in a low voice, "I think Yang Dage is being a bit too suspicious; I personally think his actions were indeed commendable. Those bastards deserved to die. No wonder the common people here praise him."
+
+The beautiful girl said in a flat tone, "I have a feeling Yang Zuoshi is more correct. But I can't explain why. It's just a hunch."
+
+The man surnamed Fan clicked his tongue, seemingly a bit jealous. Then he said, "Ah, Tajkis, you always defend Yang Zuoshi..."
+
+At that moment, Qi Shengniang seemed not to hear the rest of the sentence. Unconsciously, she murmured softly, "Tajkis?"
+
+Her voice was actually very soft, but apparently, the three people who had passed her had very sharp ears. Their steps suddenly halted, and they turned towards Qi Shengniang. Qi Shengniang inwardly groaned, "How unlucky, why am I so stupid..." She saw the girl called Tajkis look at her intently, then smile faintly, and give a subtle gesture for her to approach.
+
+Somewhat hesitantly, Qi Shengniang stepped closer to them. But before she could speak, Tajkis grabbed her hand and whispered, "Come with us."
+
+She suddenly felt her feet lift off the ground, and she glided as fast as the wind with the three people. Tajkis embraced her waist, and apparently, by some means, made her 'fly' with them. Within a few minutes, they arrived at a secluded place, and she felt her body gently lowered.
+
+As soon as her feet touched the ground again, Qi Shengniang unconsciously let out a stifled sigh. Apparently, Tajkis heard it and laughed lightly, saying, "Don't be afraid, Little Miss. We won't hurt you."
+
+Hearing that, Qi Shengniang sighed inwardly again. Apparently, Tajkis had recognized her as a girl all along. This wasn't too strange, as Tajkis herself was also a woman, but it also indicated that her disguise was very poor. In a short time, two people had easily recognized her. Not knowing how to respond, Qi Shengniang merely gave a hesitant smile without saying anything.
+
+Tajkis looked at her with a friendly smile, then asked, "Little brother, how do you know my name? I don't think we've ever met before, have we?"
+
+She spoke Han perfectly, without the slightest foreign accent, which was somewhat in contrast to her appearance. Hearing that, Qi Shengniang took out the token given by Yue Sanguo and said, "From the person who gave me this."
+
+The three people stared in astonishment at the object she presented. They looked at each other, then Tajkis asked, "Who gave you this? Where is he now?"
+
+"He said his name is Yue Sanguo," Qi Shengniang replied. "He was heading to Shangdu when we parted. According to him, he's your subordinate, on a mission."
+
+Yang Xiao turned to the man next to him and asked, "This person is a member of the Five-Element Banner, isn't he? Who sent him to Shangdu?"
+
+The man surnamed Fan merely raised his hand, indicating he didn't know. Tajkis said, "I sent him. I thought we really needed to know what was happening there. But I only sent him alone, so as not to arouse suspicion."
+
+"And I suppose Yang Jiaozhu (Cult Master) also knows," Yang Xiao said flatly.
+
+Qi Shengniang could catch the sarcasm in that tone. But then Tajkis said, "At that time, Yang Jiaozhu and also Furen (Madam, referring to his wife) happened to be next to me. Of course, they knew. Yang Dage, do you still want to ask the Cult Master directly about this?"
+
+"Of course not," Yang Dage replied with a faint smile. "I know both of them already consider you as their own child."
+
+"Tajkis, I think next time you should at least inform us," said the man called Fan Dage in a more friendly tone. "I think that's all Yang Zuoshi wanted to convey."
+
+Tajkis seemed to consider the matter unimportant. She ignored the two men and turned to Qi Shengniang, smiling and asking, "Little brother, we haven't been introduced. What's your name?"
+
+After thinking for a moment, Qi Shengniang finally decided to be frank with Tajkis and the two men. After all, she needed their help, why hide her identity? She replied, "Jiejie (Big Sister), and also both Dages, frankly, I'm not from Zhongyuan. I come from Goryeo. My name is Ki Son-yeo, but since childhood, Shifu called me Qi Shengniang."
+
+The three were quite surprised. Tajkis asked, "Goryeo? Isn't that quite far? How did you come to Zhongyuan, then meet Yue Sanguo who was on his way to Shangdu?"
+
+This was the second time Qi Shengniang had to answer that she had killed someone. But this time she was ready, and she was determined to be frank, so she calmly replied, "In my hometown, I killed two officers in self-defense. So I was forced to flee and arrived here. That's when I met Yue Dage."
+
+This time, all of them were genuinely surprised. The man surnamed Fan asked, "You mean, you killed people?"
+
+Qi Shengniang then fully recounted what had happened in Goryeo, until she finally arrived at this place and met them. The three listened carefully without interrupting, and their eyes widened even further at the end of the story. "You really killed people," Fan Dage repeated.
+
+Yang Xiao chimed in, "Killed two people—imperial soldiers."
+
+To Qi Shengniang's surprise, Tajkis smiled. Her surprise seemed to have vanished. She was about to ask when Yang Xiao suddenly extended his right palm towards Qi Shengniang's face. Startled, Qi Shengniang instinctively dodged to the left without moving her feet. But then the palm changed into a backhand slap, still aiming for Qi Shengniang's head. This time, she quickly ducked her head and shifted her left foot in a semicircle to the right-back, then moved her elbow towards Yang Xiao's ribs.
+
+"Excellent!" Yang Dage praised wholeheartedly. To Qi Shengniang's surprise, he ignored her elbow, and his right hand returned to its original position, but this time he lifted his right leg towards the little girl's knee. Qi Shengniang was shocked. She was forced to jump back two steps to avoid the hand blocking her head movement and the leg strike towards her knee.
+
+Fan Dage burst into laughter and said, "Yang Zuoshi, aren't you ashamed to be rough with a child?"
+
+"This child's kung fu is by no means weak," Yang Dage said with a smile. "Little sister, forgive my rudeness just now, but killing two people for a girl your age is quite extraordinary to my ears."
+
+"In that case, from now on we'll call you Qi Shimei (Seventh Junior Sister)," Tajkis said. "Anyone who hears it will think you're our seventh junior sister of the sect." She laughed as she turned to Yang Dage on her right.
+
+"Which is good," Yang Xiao said. "My name is Yang Xiao. From now on, we should adjust how we speak in public. Don't call me Yang Zuoshi anymore; people will easily guess our identity."
+
+Tajkis laughed. "My name is a bit difficult to adapt to your terms," she said. "Qi Shimei, they all always call me Tajkis. If you wish, you can call me Jiejie or Shijie. I think I should also adapt to Han attire. My clothes are a bit too conspicuous."
+
+Fan Yao seemed excited, saying, "Great! Unfortunately, we're still missing one more person, and where did your two disciples go?"
+
+"Mei Jian and Ah Luo are currently in Jiangnan," Tajkis replied. "They're observing the activities of salt smugglers. Many of those bastards use the Ming Jiao name, isn't that very detrimental to us?"
+
+Fan Yao cursed, "Those scoundrels in Jiangnan are difficult to manage! Those pirates must have strong supporters, but right now, we don't know who's protecting them."
+
+Yang Xiao said, "It's clearly not Yin Tianzheng or his children. They must be competing with Yin Tianzheng in the salt business."
