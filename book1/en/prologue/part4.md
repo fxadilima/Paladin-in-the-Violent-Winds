@@ -230,3 +230,50 @@ Fan Yao seemed excited, saying, "Great! Unfortunately, we're still missing one m
 Fan Yao cursed, "Those scoundrels in Jiangnan are difficult to manage! Those pirates must have strong supporters, but right now, we don't know who's protecting them."
 
 Yang Xiao said, "It's clearly not Yin Tianzheng or his children. They must be competing with Yin Tianzheng in the salt business."
+
+"How could Yin Yewang ever win against salt smugglers? They sell at incredibly cheap prices, while Yin Tianzheng stubbornly insists on only dealing in official salt!" Tajkis said, bursting into laughter.
+
+At that time, there were two types of salt circulating in the market. "Official Salt" was taxed by the government, making it clearly more expensive. Meanwhile, "unofficial" salt was the product of coastal residents in the east, smuggled north without government permission, thus being much cheaper. In the Yuan Dynasty era, salt was a very expensive commodity. Citizens who couldn't afford it might live without salt.
+
+"In this matter, Yin Tianzheng is right," Yang Xiao said. "Seeking trouble with the government will only harm us."
+
+"In my opinion, you and your outdated policies sometimes harm us," Tajkis retorted. She laughed, then continued lightly, "Stealing a little from those fat-bellied rich people in the south actually benefits us, and the poor!"
+
+"Stealing is still wrong!" Yang Xiao said with a stiff face.
+
+"So is fornication!" Tajkis shot back, unwilling to concede. "You forbid people from stealing, but you let Yin Yewang take concubines as he pleases. You and Yin Tianzheng even condone that lecherous bastard opening brothels in Jiangnan! Don't tell me that's better than stealing from the rich and distributing the proceeds to the poor, because I don't believe it for a second!"
+
+"What they established were gambling dens, not brothels," Yang Xiao replied flatly.
+
+"Hmph!" Tajkis snorted. She spat on the ground. "Don't think I don't know, it's true that from the outside those places look like gambling dens. But almost all the attendants there are women, and Yin Yewang shamelessly accepts money from guests who want to 'date' those women. In doing so, you are actually truly demeaning to women! Your policy is absolutely hypocritical!"
+
+Yang Xiao knew that what Tajkis said was true. But he also knew that these entertainment venues were merely a cover for all the Ming Jiao activities Yin Tianzheng was building to fight against the Yuan Dynasty. He couldn't forbid their activities because from these places, they could easily recruit tough prospective fighters who were currently being trained at Ming Jiao training grounds. Within a few months, they could gather tens of thousands of people. If Yang Xiao compared Tajkis's desired activities with the results Yin Tianzheng had achieved, he would choose to let Yin Yewang do what seemed wrong. He didn't want to make a decision that could damage Yin Tianzheng's further plans.
+
+Yin Tianzheng was one of the Ming Jiao's Law Enforcement Kings, known as Bai Mei Yin Wang (White-Browed Eagle King). He was quite wealthy in the southern region. His naval fleet was very strong, and the pirates on the eastern coast highly respected them. Currently, Yin Tianzheng's forces could be said to be the strongest faction within the Ming Jiao. The one Tajkis called Yin Yewang earlier is Yin Tianzheng's eldest son, who is currently about eighteen years old. This young man is indeed a bit of a philanderer and has lavish habits that Tajkis dislikes, and at every opportunity, Tajkis will not hesitate to mock and corner him. He is the one Qi Shengniang saw in the tavern earlier.
+
+Besides Yin Tianzheng, they still had two other Law Enforcement Kings: Jin Mao Shi Wang (Golden-Haired Lion King) Xie Xun and Qing Yi Fu Wang (Green-Winged Bat King) Wei Yixiao. These two had their own unique strengths, and their martial arts were very high, but they had no forces or disciples like Yin Tianzheng. This is why Yang Dingtian, the current Ming Jiao leader, greatly valued Yin Tianzheng.
+
+Yang Xiao was always at a loss when debating Tajkis. He knew that Tajkis still wanted to push her idea of robbing rich people in the south and distributing some of the proceeds to the poor. But to him, such an idea was childish and also carried the risk of confronting the Yuan Dynasty government. He wasn't afraid to face the government. Meanwhile, Yang Xiao and his allies had formulated that the Ming Jiao's main goal in Zhongyuan was actually to overthrow the Yuan Dynasty. However, at present, they were far from ready to act. If Tajkis's actions were discovered, wouldn't that expose their grand objective?
+
+For several months now, Yang Dingtian had appointed himself and Fan Yao as the Ming Cult's Left and Right Emissaries (Guangming Zuoyou Shi). In terms of position, their duties were more or less similar to the Five Wanderers (Wu San Ren) of the Ming Cult, which was to spread the Ming Cult's teachings everywhere. However, they had a special function; unlike the Wu San Ren, who primarily served as teachers or preachers, they had to be able to approach the leaders of the major martial arts sects in Wulin as friends and work together with all of them to achieve the Ming Cult's grand objective.
+
+At present, as always, the Ming Cult was regarded as a 'Heretical Cult' by almost all mainstream sects in the martial world. How could they accomplish such a difficult task? While he and Fan Yao continued to ponder ways to approach these leaders, Tajkis kept pushing her dangerous ideas right in front of them.
+
+Tajkis was the daughter of a Ming Cult member in Zhongyuan, who was sent to Persia by their previous leader before Yang Dingtian inherited the position. Yang Xiao didn't know the main purpose of that mission to Persia. However, that Ming Cult member from Zhongyuan later married a Persian woman, and thus Tajkis was born. After Tajkis reached adolescence, her father sent her back to Zhongyuan to join the Ming Cult here, also as a form of his responsibility for his duty at that time.
+
+The first moment Tajkis set foot in the Ming Cult headquarters at Guangming Ding (Bright Peak), Kunlun Shan, all eyes stared at her with intense curiosity. When she unveiled her face, they all seemed to see a small pearl among heaps of black sand. Although she was only twelve years old at the time, she possessed a certain charm that made all eyes widen in admiration. Anyone who glanced at Tajkis would surely turn to stare at her longer. From that moment on, she lived at Guangming Ding, and Yang Dingtian regarded her as his own daughter, though he never officially stated this.
+
+Needless to say, as Tajkis grew older, all the young men at Guangming Ding fell in love with her. If she happened to stroll in the nearest town, all men's eyes would follow wherever she went. If she bought something or ate at a tavern, she magically wouldn't need to pay for it. Fortunately, this didn't happen too often, as Tajkis spent most of her time at Guangming Ding practicing kung fu.
+
+Currently, Tajkis's kung fu was exceptionally high, despite her very young age. While not considered the absolute best, she was not someone just anyone could face. Even Yang Xiao and Fan Yao wouldn't easily defeat her. Yang Dingtian personally trained her, and in addition, Tajkis always practiced the Persian kung fu passed down by her parents. That kung fu was rather peculiar, and its movements were difficult for opponents to read.
+
+Knowing he would surely lose the argument, Yang Xiao finally decided not to engage with Tajkis's sharp comments. He pretended not to hear.
+
+Fan Yao said, "Enough, if you two keep this up, you'll only confuse Qi Shimei; she's just joined and doesn't understand anything yet."
+
+Qi Shengniang was overjoyed upon hearing Fan Yao's words. "So, I've been accepted as a member," she thought. She indeed didn't understand what Tajkis and Yang Xiao were debating, but she chose to remain silent and listen carefully.
+
+---
+
+[Next, Part 5](./part5.md)
+

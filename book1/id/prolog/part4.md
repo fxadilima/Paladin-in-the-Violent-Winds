@@ -236,7 +236,7 @@ Yang Xiao menimpali, "Membunuh *dua* orang — prajurit istana."
 
 Di luar dugaan Qi Shengniang, Tajkis tersenyum. Tampaknya rasa terkejutnya sudah hilang. Ia baru hendak bertanya ketika Yang Xiao tiba-tiba mengulurkan telapak tangan kanannya ke arah muka Qi Shengniang. Karena terkejut, secara naluriah Qi Shengniang mengelak ke kiri tanpa memindahkan kedua kakinya. Tapi kemudian telapak tangan itu berubah menjadi tamparan dengan menggunakan punggung tangan, dan tetap mengincar kepala Qi Shengniang. Kali ini ia buru-buru merundukkan kepalanya dan menggeser kaki kirinya setengah lingkaran ke kanan belakang, lalu memainkan sikunya ke arah rusuk Yang Xiao.
 
-"Bagus!" puji Yang Dage setulus hati. Di luar dugaan Qi Shengniang, ternyata ia mengabaikan sikunya, dan tangan kanannya kembali ke arah semula, tetapi kali ini ia mengangkat kaki kanannya ke arah lutut gadis kecil itu. Qi Shengniang terkejut.Ia terpaksa melompat mundur dua langkah untuk menghindari telapak tangan yang menghadang gerakan kepalanya, dan sambaran kaki ke arah lututnya.
+"Bagus!" puji Yang Xiao setulus hati. Di luar dugaan Qi Shengniang, ternyata ia mengabaikan sikunya, dan tangan kanannya kembali ke arah semula, tetapi kali ini ia mengangkat kaki kanannya ke arah lutut gadis kecil itu. Qi Shengniang terkejut.Ia terpaksa melompat mundur dua langkah untuk menghindari telapak tangan yang menghadang gerakan kepalanya, dan sambaran kaki ke arah lututnya.
 
 Fan Dage itu tertawa terbahak-bahak dan berkata, "Yang Zuoshi, kau tidak malu bersikap kasar kepada anak kecil?"
 
@@ -260,4 +260,60 @@ Fan Yao mengumpat, "Bajingan-bajingan Jiangnan memang susah diatur! Para bajak l
 
 Yang Xiao berkata, "Yang jelas bukan Yin Tianzheng atau anaknya. Mereka pasti bersaing dengan Yin Tianzheng dalam urusan garam."
 
+"Yin Yewang mana mungkin menang bersaing dengan penyelundup garam? Mereka menjual dengan harga sangat murah, sementara Yin Tianzheng ngotot hanya mau menerima garam resmi!" kata Tajkis sambil tertawa terbahak-bahak.
 
+Ada dua jenis garam yang saat itu beredar di pasaran. Yang disebut 'Garam Resmi' adalah garam yang dikenai pajak oleh pemerintah, yang sudah jelas lebih mahal. Sementara yang 'tidak resmi' adalah garam hasil kerja para penduduk di pesisir pantai timur yang diselundupkan ke utara tanpa ijin dari pemerintah, dengan sendirinya menjadi jauh lebih murah. Di era Dinasti Yuan, garam adalah komoditi yang sangat mahal. Warga yang tidak mampu membelinya bisa jadi akan hidup tanpa garam.
+
+"Dalam hal ini Yin Tianzheng benar," kata Yang Xiao. "Mencari masalah dengan pemerintah hanya akan merugikan kita."
+
+"Menurutku, kau dan kebijakan kolotmu itulah yang kadang-kadang merugikan kita," kata Tajkis. Ia tertawa sambil melanjutkan dengan nada ringan, "Mencuri sedikit dari orang-orang kaya berperut gendut di selatan justru menguntungkan kita, dan juga rakyat miskin!"
+
+"Mencuri tetap adalah *salah*!" kata Yang Xiao dengan muka kaku.
+
+"Begitu juga *berzinah*!" sahut Tajkis tak mau kalah. "Kau melarang orang mencuri, tapi ternyata kau membiarkan Yin Yewang mengambil selir-selir seenak perutnya. Bahkan kau dan Yin Tianzheng merestui *bajingan cabul* itu membuka rumah-rumah bordil di Jiangnan! Jangan bilang hal itu lebih baik ketimbang mencuri dari orang kaya, dan membagikan hasilnya kepada orang-orang miskin, karena aku sedikitpun tidak percaya!"
+
+"Yang mereka dirikan adalah tempat-tempat perjudian, *bukan* rumah bordil," jawab Yang Xiao dengan nada datar.
+
+"Huh!" dengus Tajkis. Ia meludah di tanah. "Jangan kira aku tidak tahu, memang betul dari luar tempat-tempat itu kelihatan seperti tempat perjudian. Tapi yang melayani di situ hampir semuanya perempuan, dan nyatanya Yin Yewang tanpa malu-malu menerima uang dari para tamu yang ingin berkencan dengan wanita-wanita itu. Dengan begitu, sebetulnya kalian sungguh-sungguh merendahkan kaum perempuan! Kebijakanmu itu betul-betul munafik!"
+
+Yang Xiao bukan tidak tahu apa yang dikatakan Tajkis itu memang benar. Tetapi ia juga tahu bahwa tempat-tempat hiburan ini hanyalah samaran bagi segala kegiatan Ming Jiao yang sedang dibangun Yin Tianzheng untuk melawan Dinasti Yuan. Ia tidak bisa melarang kegiatan mereka adalah karena dari tempat-tempat itu ternyata mereka dengan mudah merekrut calon-calon pejuang tangguh yang saat ini sedang dibina di tempat-tempat pelatihan Ming Jiao. Dalam waktu beberapa bulan mereka bisa mengumpulkan puluhan ribu orang. Jika Yang Xiao membandingkan antara kegiatan yang ingin dilakukan Tajkis dengan hasil yang sudah dicapai oleh Yin Tianzheng, maka ia akan memilih untuk membiarkan Yin Yewang melakukan apa yang kelihatannya salah. Ia tidak ingin memutuskan sesuatu yang bisa merusak rencana Yin Tianzheng selanjutnya.
+
+Yin Tianzheng adalah salah seorang Raja Pengawal Hukum Ming Jiao, yang dijuluki *Bai Mei Yin Wang*[^bai-mei-yin-wang]. Ia adalah seorang yang cukup kaya di wilayah selatan. Armada lautnya sangat kuat, dan para bajak laut di pantai timur sangat segan kepada mereka. Saat ini pasukan Yin Tianzheng boleh dibilang adalah pasukan terkuat yang dimiliki Ming Jiao. Yang dipanggil Yin Yewang oleh Tajkis tadi adalah putra sulung Yin Tianzheng, yang saat ini masih berusia sekitar delapan belas tahun. Pemuda ini memang agak mata keranjang, dan punya kebiasaan berfoya-foya, yang tidak disukai oleh Tajkis, dan di setiap kesempatan Tajkis tidak akan ragu-ragu untuk menyindir dan menyudutkannya. Dialah yang dilihat oleh Qi Shengniang di kedai itu sebelumnya.
+
+[^bai-mei-yin-wang]: Bai Mei Yin Wang (白眉鷹王), "Raja Elang Beralis Putih".
+
+Selain Yin Tianzheng, mereka masih punya dua orang Raja Pengawal Hukum lainnya, yaitu *Jin Mao Shi Wang*[^jin-mao-shi-wang] Xie Xun dan *Qing Yi Fu Wang*[^qing-yi-fu-wang] Wei Yixiao. Kedua orang ini punya keistimewaan mereka sendiri-sendiri, dan ilmu silat mereka sangat tinggi, tetapi mereka sama sekali tidak punya pasukan maupun murid-murid seperti Yin Tianzheng. Inilah sebabnya Yang Dingtian, ketua Ming Jiao saat ini, sangat menghargai Yin Tianzheng.
+
+[^jin-mao-shi-wang]: Jin Mao Shi Wang (金毛獅王), "Raja Singa Berambut Emas". 
+[^qing-yi-fu-wang]: Qing Yi Fuwang (青翼蝠王), "Raja Kelelawar Berjubah Hijau".
+
+Yang Xiao memang selalu kewalahan jika harus berdebat dengan Tajkis. Saat ini ia tahu bahwa Tajkis masih ingin memaksakan idenya untuk merampok orang-orang kaya di selatan, dan membagi-bagikan sebagian hasilnya untuk rakyat miskin. Tapi baginya ide semacam itu sungguh kekanak-kanakan, dan juga mengandung resiko berhadapan dengan pemerintah Dinasti Yuan. Ia bukan takut menghadapi pemerintah. Sementara ini, Yang Xiao dan sekutu-sekutunya sudah merumuskan bahwa tujuan utama Ming Jiao di Zhongyuan ini sebenarnya adalah untuk menggulingkan Dinasti Yuan. Hanya saja, saat ini mereka masih jauh dari siap untuk bergerak. Jika tindakan Tajkis sampai ketahuan, bukankah hal itu akan menyebabkan tujuan besar mereka terbongkar?
+
+---
+
+*I guess a little exposition would not hurt, as a closing narrative for this section:*
+
+Sejak beberapa bulan yang lalu, Yang Dingtian telah mengangkat dirinya dan Fan Yao sebagai Utusan sayap kiri dan kanan Ming Jiao[^utusan]. Dari sisi jabatan, tugas mereka kurang lebih sama seperti Lima Pengembara[^wu-sanren] Ming Jiao, yaitu menyebarluaskan ajaran Ming Jiao ke segala tempat. Tetapi mereka punya fungsi khusus, bukan seperti Wu San Ren yang lebih berfungsi sebagai pengajar atau pengkotbah, mereka harus bisa mendekati para pemimpin perguruan-perguruan besar di Wulin sebagai sahabat, dan harus bisa bekerja sama dengan mereka semua untuk melaksanakan tujuan besar Ming Jiao itu.
+
+[^utusan]: Utusan yang dimaksud di sini adalah Guangming Zuoyou Shi (光明左右使), lebih mengarah ke pelaksana harian dari ketua umum, yang bertugas sama, dengan jangkauan berbeda.
+[^wu-sanren]: Lima Pengembara adalah Wu San Ren (五散人), yang anggotanya adalah Leng Qian, Shuo Bude, Pendeta Zhang Zhong, Biksu Peng Yingyu dan Zhou Dian.
+
+Saat ini, seperti yang sudah-sudah, Ming Jiao dianggap sebagai 'Ajaran Sesat' oleh hampir semua perguruan arus utama di dunia persilatan. Bagaimana caranya mereka bisa menunaikan tugas sulit itu? Sementara ia dan Fan Yao masih terus memikirkan cara mendekati para pemimpin ini, Tajkis terus menerus mendorong idenya yang berbahaya itu ke depan hidungnya.
+
+Tajkis adalah putri seorang anggota Ming Jiao di Zhongyuan ini, yang di utus ke Persia oleh ketua mereka sebelum Yang Dingtian mewarisi posisi ketua. Yang Xiao tidak tahu apa tujuan utama tugas ke Persia itu. Tetapi kemudian anggota Ming Jiao dari Zhongyuan itu menikah dengan wanita Persia, dan akhirnya Tajkis pun lahir. Setelah Tajkis menginjak usia remaja, ayahnya lalu mengirimkannya kembali ke Zhongyuan untuk bergabung dengan Ming Jiao di sini dan sekaligus sebagai bentuk tanggung jawabnya akan tugasnya pada saat itu.
+
+Detik pertama pada saat Tajkis menginjakkan kakinya di markas Ming Jiao di Guangming Ding, Kunlun Shan, semua mata menatapnya dengan penuh rasa ingin tahu. Ketika ia membuka cadar yang menutupi wajahnya, saat itu mereka semua seperti melihat sebutir mutiara kecil di antara gundukan pasir hitam. Meskipun saat itu usianya baru dua belas tahun, tetapi ia punya pesona tertentu yang membuat semua mata terbelalak memandangnya. Orang yang memandang Tajkis sekilas, pasti akan menoleh untuk menatapnya lebih lama lagi. Sejak saat itu ia tinggal di Guangming Ding, dan Yang Dingtian menganggapnya sebagai putrinya sendiri, meskipun tidak pernah secara resmi menyatakan hal ini. 
+
+Tak perlu ditanya lagi, ketika Tajkis semakin dewasa, semua pemuda tanggung di Guangming Ding jatuh cinta kepadanya. Jika ia kebetulan berjalan-jalan di kota terdekat, semua mata pria akan mengikuti ke mana pun ia pergi. Jika ia membeli sesuatu atau makan di salah satu kedai, secara ajaib kemudian ia tidak perlu membayarnya. Untungnya hal ini tidak terlalu sering terjadi, karena Tajkis menghabiskan sebagian besar waktunya di Guangming Ding untuk berlatih kungfu.
+
+Saat ini kungfu Tajkis sangat tinggi, di usianya yang masih sangat muda. Meskipun tidak bisa dikatakan sebagai kungfu nomor satu, tetapi bukan sembarang orang bisa menghadapinya. Bahkan Yang Xiao dan Fan Yao tidak dengan mudah akan bisa mengalahkannya. Yang Dingtian menggemblengnya secara langsung, di samping itu Tajkis masih selalu melatih kungfu Persia yang diturunkan oleh orang tuanya. Kungfu itu agak aneh, dan gerakannya sulit dibaca lawan.
+
+Karena merasa pasti akan kalah berdebat, akhirnya Yang Xiao memutuskan untuk tidak meladeni komentar pedas Tajkis. Ia pura-pura tidak mendengar.
+
+Fan Yao berkata, "Sudahlah, kalau diteruskan, kalian hanya akan membuat Qi Shimei jadi bingung, dia baru bergabung dan masih belum memahami apa-apa."
+
+Qi Shengniang kegirangan begitu mendengar ucapan Fan Yao itu. "Jadi saat ini aku sudah diterima menjadi anggota mereka," pikirnya. Ia memang sama sekali tidak memahami apa yang sedang diperdebatkan oleh Tajkis dan Yang Xiao, tapi ia memilih untuk diam dan memasang telinganya baik-baik.
+
+---
+
+[Berikutnya, Bagian 5: ](./part5.md)

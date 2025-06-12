@@ -4,7 +4,7 @@
 One afternoon in Haengju, a city in southern Goryeo, a girl of about five was listening intently to her teacher's story. Her eyes barely blinked. Occasionally, she'd ask questions with eager curiosity in Han Chinese that sounded almost indistinguishable from the dialect of Jiangnan residents. She was called Ki Son-yeo[^ki-sonyeo], but her teacher had given her a unique and beautiful name, 'Qi Shengniang'[^shengniang], using her own surname 'Ki' (pronounced in Han Chinese), and adding a name meaning 'Holy Maiden.'
 
 [^shengniang]: Sheng Niang (聖娘), 'Holy Maiden'.
-[^ki-sonyeo]: Her surname is Ki '기'. The two characters Son-yeo (소녀) simply mean 'girl' and would also be translated as 'Niang' (娘) in Han Chinese.
+[^ki-sonyeo]: Her surname is Ki '기', in Chinese character is (奇). The two characters Son-yeo (소녀) simply mean 'girl' and would also be translated as 'Niang' (娘) in Han Chinese.
 
 Her martial arts teacher, Douluo Haoyu, was a man of about ninety, a former member of the Beggars' Sect (Kai Pang) who had eventually come to Goryeo and settled in Haengju. Douluo Haoyu married a Goryeo woman, and his daughter now had a son and two daughters. His three grandchildren were roughly the same age as this cherished, sole female disciple. In Haengju, he had originally worked only as a farmer, but eventually, a nobleman named Ki Ja-oh discovered that Douluo Haoyu was a high-level martial arts expert. At the time, Ki Ja-oh had no idea that Douluo Haoyu had previously been an eight-pouch elder of the Beggars' Sect.
 
