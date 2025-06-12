@@ -139,3 +139,17 @@ For years, Xie Xun has been trying to take revenge to Cheng Kun, who murder his 
 
 Jin Yong tell the story via another characters, but we can insert them here:
 
+---
+
+The following sub-plot found in https://en.wikipedia.org/wiki/List_of_The_Heaven_Sword_and_Dragon_Saber_characters#Emei_School
+
+*Guhongzi (孤鴻子; Gūhóngzǐ) was Miejue's senior who challenged Yang Xiao to a duel. He borrowed Miejue's Heaven-Reliant Sword in the hope that it would give him an advantage. However, he lost to Yang Xiao and the sword was seized from him by Yang before he could even unsheathe it. Yang Xiao made some unkind remarks, threw the sword to the ground and walked away. Guhongzi felt disgraced and insulted and eventually died in frustration. His death caused Miejue to bear a grudge against Yang Xiao and the Ming Cult.*
+
+---
+
+*Miejue's Prioritization: Her dismissive reaction to Cheng Kun's message makes more sense. While Cheng Kun is a murderer, Miejue's primary obsession is with avenging Guhongzi and "eradicating" the Ming Cult, whom she considers the true demonic force.*
+- This Guhongzi story is yet to happen. Let's make it happen now, right before Ki Son-yeo's eyes:
+
+
+---
+
