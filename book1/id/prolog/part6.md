@@ -211,13 +211,13 @@ Fan Yao tertawa, berkata dengan ringan, "Bukankah malam ini kita juga bandit?"
 
 "Kita ke Zhangjiakou sekarang," jawab Tajkis, "Kurasa di sana juga pasti sama. Pemerintah cenderung mengabaikan peristiwa itu. Tampaknya Yesun Temur beranggapan ini kebetulan yang menarik, sekaligus membersihkan pemerintahannya, karena yang tewas itu semuanya pejabat yang dianggapnya buruk!"
 
----
-
 Merasa dirinya sudah terlanjur menjadi bandit, dan tidak ingin membuat Tajkis kecewa, Fan Yao akhirnya mengangkat bahu dan berkata, "Mungkin juga ini berguna bagi banyak orang. Tapi mengapa kita tidak sekalian saja membersihkan yang di sebelah barat, kulihat masih sangat banyak yang bisa kita ambil? Kami berdua tentu saja tidak bisa membawa keluar begitu banyak emas."
 
 "*Lama-Lama* yang kau ikat itu pasti akan berteriak-teriak," jawab Tajkis, "Setelah itu, kita jadi tidak aman lagi di sini. Selain itu, pengamanan kota di Kalgan jelas lebih kendor ketimbang di sini. Apalagi, setelah musim dingin nanti, Khaghan jelas akan kembali ke Dadu! Pada saat itu kita belum tentu punya kesempatan lagi."
 
 Hal ini baru terpikir oleh semua orang lain. Mereka bergegas keluar dari pintu gerbang kota, membawa serta gerobak mereka bersama lima orang anggota Ming Jiao yang mengawalnya. Membeli beberapa karung biji-bijian dan bahan-bahan makanan lain, semua emas dan perak itu mereka sembunyikan di antara bahan-bahan makanan. Mereka menggunakan sebagian uang untuk membeli sebuah kereta yang ditarik oleh dua ekor onta. Mereka juga menjual kuda-kuda mereka, menggantinya dengan onta.
+
+## *Zhangjiakou, Oktober 1327: Peri Kecil Di Atas Onta*
 
 Bagi Qi Shengniang, ini pengalaman yang menarik. Di Haengju ia tak pernah naik onta. Dengan cara ini, Tajkis sebenarnya memperlambat perjalanan mereka, tetapi sekaligus membuatnya lebih aman, karena tak ada peraturan bahwa mereka dilarang naik onta, terutama sekali bagi Tajkis, yang tampak jelas bukan orang Han. Di sepanjang perjalanan, mereka selalu menyisihkan waktu untuk berlatih kungfu bersama. Kungfu Qi Shengniang maju pesat sejak bergaul dengan Tajkis.
 
@@ -226,8 +226,6 @@ Di tengah perjalanan itu, di luar dugaan mereka bertemu kembali dengan sekelompo
 "Hei, ternyata kalian lagi!" seru pemimpin kelompok itu, seorang pria sekitar dua puluh lima tahun, yang sebelumnya sudah jelas adalah ahli pedang.
 
 Karena saat ini mereka sedang berada di luar kota, dan jalanan di sekitar tempat itu sepi, Tajkis sangat senang, berkata dengan manis, "Kenapa, kau ingin melanjutkan perkelahian yang lalu?"
-
----
 
 Para bandit lain itu kini berkata kepada pemimpin mereka, sambil tertawa, "*Dage*, kurasa gadis ini menyukaimu! Jangan bikin malu Kai Pang, tunjukkan dengan siapa mereka berhadapan!"
 
@@ -298,5 +296,6 @@ Merentangkan tangan kanannya untuk mempersilakan rombongan Tajkis lewat, Fang Do
 
 ---
 
-*How will this unique partnership unfold as they proceed with their respective "operations"? Will Fang Dongbai truly keep his word, and what unexpected challenges might arise from this unusual division of labor in the city?*
+[Berikutnya, Bagian 7: Peri Kecil di Xinjiang](./part7.md)
+
 

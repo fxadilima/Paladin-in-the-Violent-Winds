@@ -113,3 +113,25 @@ In our current narrative, **Yang Dao** is the one with 'Yang' family name!
 
 ---
 
+During the Yuan Dynasty, Xinjiang was not a unified province under direct Yuan rule, but rather a region with shifting control and administrative structures. Initially, the Yuan established the Beiting (别失八里行省) province, but much of Xinjiang fell under the influence of the Chagatai Khanate, a separate Mongol khanate, after 1286. The Yuan did retain some control over eastern Xinjiang, establishing the Qara-hoja commandery (哈剌火州總管府) in that area. 
+Yuan Dynasty - World History Encyclopedia
+
+Here's a more detailed breakdown:
+
+- Initial Yuan Control:
+The Yuan Dynasty initially brought parts of present-day Xinjiang under its control, including the area of Bechbaliq (别失八里), which was designated as a province. 
+
+- Chagatai Khanate Influence:
+However, the Chagatai Khanate, another Mongol khanate, gradually expanded its influence in the region, eventually controlling most of Xinjiang. 
+
+- Yuan's Limited Presence:
+While the Yuan lost direct control over much of the area, they maintained some presence, particularly in eastern Xinjiang, where the Qara-hoja commandery was established. 
+
+- Administrative Structures:
+The Yuan did introduce administrative structures, like the Beiting Command and the Anxi province, to govern parts of the Western Regions (including Xinjiang). 
+
+- Breakthrough in Governance:
+The Yuan's system of administrative provinces was a significant development in the governance of Xinjiang, marking the first time such a system was applied in the Western Regions. 
+- Later Ming Dynasty:
+The Yuan Dynasty was eventually replaced by the Ming Dynasty, and the Genghisid rulers retreated to the Mongolian Plateau. 
+

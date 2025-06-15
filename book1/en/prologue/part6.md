@@ -260,4 +260,8 @@ For Tajkis, this was quite a stroke of luck. She felt that since Fang Dongbai an
 
 Extending his right hand to gesture for Tajkis's group to pass, Fang Dongbai said, "Miss Guan — please!"
 
+---
+
+[Next, Part 7: Little Goddess of Mercy in Xinjiang](./part7.md)
+
 
