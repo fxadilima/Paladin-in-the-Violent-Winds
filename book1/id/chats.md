@@ -153,3 +153,53 @@ The following sub-plot found in https://en.wikipedia.org/wiki/List_of_The_Heaven
 
 ---
 
+**Qianlong Wu Yong:**
+
+In China the dragon has a meaning altogether different from that given it in the Western world. The dragon is a symbol of the electrically charged, dynamic, arousing force that manifests itself in the thunderstorm. In winter this energy withdraws into the earth; in the early summer it becomes active again, appearing in the sky as thunder and lightning. As a result the creative forces on earth begin to stir again.
+
+Here this creative force is still hidden beneath the earth and therefore has no effect. In terms of human affairs, this symbolizes a great man who is still unrecognized. Nonetheless he remains true to himself. He does not allow himself to be influenced by outward success or failure, but confident in his strength, he bides his time. Hence it is wise for the man who consults the oracle and draws this line to wait in the calm strength of patience. The time will fulfill itself. One need not fear lest strong will should not prevail; the main thing is not to expend one's powers prematurely in an attempt to obtain by force something for which the time is not yet ripe.
+
+---
+
+**Facts about Kusala:**
+
+Khutughtu Khan (; Mongolian script: ; 忽都篤汗), born Kuśala (Mongolian: Хүслэн ; 和世剌; , meaning "virtuous"/"wholesome"), also known by his temple name as the Emperor Mingzong of Yuan (元明宗; 22 December 1300 – 30 August 1329), was a son of Khayishan (Emperor Wuzong) who seized the throne of the Yuan dynasty of China in 1329, but died in suspicious circumstances six months later. Apart from the Emperor of China, he is considered as the 13th Great Khan of the Mongol Empire, although it was only nominal due to the division of the empire.
+
+---
+
+
+Yuan Dynasty official architecture, while influenced by earlier styles, also saw unique developments under Mongol rule. The most prominent example is *Yongle Palace*, a large Taoist complex, which showcases the period's architectural characteristics. These include the use of *double-eaved Xie-shan style roofs*, glazed tiles for decoration, and a focus on symmetrical layouts in palace buildings. 
+
+Here's a more detailed breakdown:
+
+**Influences and Innovations:**
+Yuan Dynasty architecture incorporated elements from the preceding Jin Dynasty, but also reflected Mongol preferences and building practices. 
+
+**Yongle Palace:**
+This significant site, built in Shanxi province, is a key example of Yuan Dynasty official architecture. It features four well-preserved wooden structures from that era. 
+
+**Roofing and Materials:**
+Double-eaved Xie-shan style roofs were common, and the use of glazed tiles, particularly peacock blue, became more prevalent. 
+
+**Layout and Structure:**
+Palace buildings often featured symmetrical layouts, with some employing eight-pillared structures for a sense of grandeur. 
+
+**Adaptability:**
+Sliding lattice windows and fully detachable square-grid doors and windows were used to adapt to different weather conditions and enhance functionality. 
+
+**Decorative Elements:**
+Intricate decorations and carvings adorned building foundations, and some structures incorporated honeycomb and rhomboid brick patterns. 
+
+**Building Units:**
+Complex buildings were often composed of repeated architectural units, with corridors used to connect different levels and sections. 
+
+Beyond Palaces:
+While palaces were a major focus, the Yuan Dynasty also saw the construction of tombs, theaters, and other structures, reflecting a broader range of architectural styles and functions. 
+
+Dadu (Khanbaliq):
+The capital city, Dadu (present-day Beijing), was planned according to the "Artificer's Record" (Kaogong ji) from the Zhou Dynasty, emphasizing a square layout and specific road and gate arrangements. 
+
+Focus on Functionality and Aesthetics:
+The Yuan Dynasty architecture aimed to balance practical considerations with aesthetic appeal, incorporating elements like adaptable windows and doors alongside decorative features. 
+
+

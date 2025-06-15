@@ -76,10 +76,6 @@ sebetulnya tidak sengaja. Mereka ingin menangkapku, masa aku diam saja? Dage, ja
 
 "Oh, tidak," jawab Yue Sanguo. "Tentu saja tidak. *Bangsat-bangsat* itu memang pantas mati." Ia mengerutkan keningnya sambil menatap Qi Shengniang penuh selidik, lalu bertanya, "Tapi kenapa mereka ingin menangkapmu?"
 
----
-
-*And here comes the short, not very interesting duel:*
-
 Sebelum Qi Shengniang manjawab, saat itu telinga mereka mendengar langkah kaki yang sangat halus mendekat dari depan. Qi Shengniang buru-buru memberi isyarat supaya Yue Sanguo tidak bicara. Dua orang pria tampak memasuki tanah lapang yang akan dijadikan arena partarungan.
 
 Cahaya bulan menerangi sosok seorang pria yang sudah mendekati usia empat puluh tahun, bertubuh sedang, membawa sebuah pedang panjang yang dari tempat mereka mengintip tampak sangat mengesankan bagi Qi Shengniang. Daari kejauhan, seolah-olah aura tertentu yang sangat berwibawa terpancar dari pedang itu. Kilaunya tajam tertimpa sinar bulan, bahkan sebelum dihunus. Di gagang pedang itu, dari kejauhan, mata mereka bisa membaca sebuah kalimat terukir indah 'Yitian Jian'.
@@ -288,10 +284,6 @@ Selain Yin Tianzheng, mereka masih punya dua orang Raja Pengawal Hukum lainnya, 
 [^qing-yi-fu-wang]: Qing Yi Fuwang (青翼蝠王), "Raja Kelelawar Berjubah Hijau".
 
 Yang Xiao memang selalu kewalahan jika harus berdebat dengan Tajkis. Saat ini ia tahu bahwa Tajkis masih ingin memaksakan idenya untuk merampok orang-orang kaya di selatan, dan membagi-bagikan sebagian hasilnya untuk rakyat miskin. Tapi baginya ide semacam itu sungguh kekanak-kanakan, dan juga mengandung resiko berhadapan dengan pemerintah Dinasti Yuan. Ia bukan takut menghadapi pemerintah. Sementara ini, Yang Xiao dan sekutu-sekutunya sudah merumuskan bahwa tujuan utama Ming Jiao di Zhongyuan ini sebenarnya adalah untuk menggulingkan Dinasti Yuan. Hanya saja, saat ini mereka masih jauh dari siap untuk bergerak. Jika tindakan Tajkis sampai ketahuan, bukankah hal itu akan menyebabkan tujuan besar mereka terbongkar?
-
----
-
-*I guess a little exposition would not hurt, as a closing narrative for this section:*
 
 Sejak beberapa bulan yang lalu, Yang Dingtian telah mengangkat dirinya dan Fan Yao sebagai Utusan sayap kiri dan kanan Ming Jiao[^utusan]. Dari sisi jabatan, tugas mereka kurang lebih sama seperti Lima Pengembara[^wu-sanren] Ming Jiao, yaitu menyebarluaskan ajaran Ming Jiao ke segala tempat. Tetapi mereka punya fungsi khusus, bukan seperti Wu San Ren yang lebih berfungsi sebagai pengajar atau pengkotbah, mereka harus bisa mendekati para pemimpin perguruan-perguruan besar di Wulin sebagai sahabat, dan harus bisa bekerja sama dengan mereka semua untuk melaksanakan tujuan besar Ming Jiao itu.
 
