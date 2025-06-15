@@ -168,3 +168,96 @@ Pulling Mei Jian's hand, she then ran towards the back of the house and leaped o
 
 ---
 
+Reconvening in front of their inn, Tajkis cursed, "Damn it! Those foolish bandits ruined everything."
+
+Fan Yao chuckled, saying lightly, "Aren't we also bandits tonight?"
+
+"Where did you take those Lamas?" Yin Susu asked, giggling.
+
+"Was that Qi Shimei's or Er Shige's urine?" Mei Jian inquired.
+
+"Er Shige's, of course," Qi Shengniang answered, bursting into laughter. Actually, it was her urine and her idea. "Er Shige tied them all together and then tied them to the house pillars."
+
+"Our haul was quite substantial," Tajkis said, but her brow was furrowed. "I'm still annoyed, I didn't get anything this time. I could've just charged them, but their weapons made too much noise, attracting suspicion!"
+
+"So, what do you want to do now?" Fan Yao asked. Internally, he felt this was a rather foolish question, as it was clear Tajkis wanted to repeat this endeavor elsewhere. And his guess was correct.
+
+"We're going to Zhangjiakou now," Tajkis replied. "I'm sure it'll be the same there. The government tends to ignore these incidents. It seems Yesun Temur considers this an interesting coincidence, simultaneously cleaning up his administration, as all those who died were officials he deemed corrupt!"
+
+Feeling that he had already committed to being a "bandit" and not wanting to disappoint Tajkis, Fan Yao finally shrugged and said, "Perhaps this will benefit many people. But why don't we just clear out the western house as well? I saw there's still so much we could take. The two of us certainly couldn't carry that much gold out."
+
+"The Lamas you tied up will surely start shouting," Tajkis replied, "After that, we won't be safe here anymore. Besides, the city security in Kalgan is clearly looser than here. What's more, after winter, the Khagan will definitely return to Dadu! At that point, we might not have another opportunity."
+
+This thought had not occurred to the others. They quickly exited the city gate, bringing their cart along with the five Ming Cult members who were guarding it. Purchasing several sacks of grain and other foodstuffs, they hid all the gold and silver among the provisions. They used some of the money to buy a cart pulled by two camels. They also sold their horses, replacing them with camels.
+
+For Qi Shengniang, this was an interesting experience. She had never ridden a camel in Haengju. In this way, Tajkis was actually slowing down their journey, but simultaneously making it safer, as there were no regulations against riding camels, especially for Tajkis, who clearly wasn't Han Chinese. Along the journey, they always set aside time to practice kung fu together. Qi Shengniang's kung fu advanced rapidly since associating with Tajkis.
+
+Midway through their journey, unexpectedly, they re-encountered the group of bandits who had thwarted Tajkis's earlier attempt in Dadu. This time, they were dressed in tattered clothes and held bamboo staffs in their hands.
+
+"Hey, it's you guys again!" exclaimed the group leader, a man around twenty-five years old, who had previously been clearly a sword expert.
+
+As they were currently outside the city, and the road around them was deserted, Tajkis was very pleased, saying sweetly, "What, do you want to continue our last fight?"
+
+The other bandits now laughed at their leader. "Dage, I think this girl fancies you! Don't embarrass the Beggars' Gang; show them who they're dealing with!"
+
+Not to be outdone, Fan Yao let out a dry laugh. "Tajkis, it's time we helped Elder Yelu Qi clean up the Beggars' Gang."
+
+"Unfortunately, my sword refuses to be used to kill nameless people," Tajkis said flatly. "State your name if you're in such a hurry to die."
+
+To her surprise, the bandit leader, who now openly declared his group to be members of the Beggars' Gang, cupped his hands respectfully. "I am indeed presumptuous and tired of living. My surname is Fang, commonly called Dongbai. And the lady...?"
+
+"My surname is Guan," Tajkis said casually. "My given name is Yin, but you may call me Tajkis. Those who casually utter my full name usually die quickly."[^guanyin]
+
+[^guanyin]: Guanyin, also known as Guan Yin (觀音), is a revered figure in East Asian Buddhism, primarily known as the Bodhisattva of compassion and mercy, and is often referred to as a goddess by some sources. Originally introduced to China as the male bodhisattva Avalokiteśvara from India, Guanyin evolved into a female figure over time, particularly in Chinese Buddhism according to some historical accounts. 
+
+Qi Shengniang loved this style of Tajkis. She laughed internally, thinking, 'Guan Yin' is the name of a goddess highly revered by Buddhists, but Tajkis is casually using it as her own name.
+
+Fang Dongbai's companions grew even more amused by the reply. One of them, who had a large mole on his forehead, burst into laughter. "Dage, this harlot dares to claim herself a Goddess..."
+
+His sentence didn't finish. From atop her camel, Tajkis moved with incredible speed. Before he realized what was happening, his mouth had been slapped twice, then Tajkis returned to her camel's back, using the man's head as a stepping stone. All the others only saw a blurred purple shadow moving towards the unfortunate beggar. With a dry laugh, Tajkis then turned to Qi Shengniang, "Shimei, you saw how I did it, right? Do you want to try it now?"
+
+"Oh," Qi Shengniang replied.
+
+This time, they only saw a blurred blue shadow as the beggar on the left, who had previously been slapped twice by Tajkis, was now slapped by Qi Shengniang, who immediately returned to her original spot on the camel's back after using her victim's head as a stepping stone. With a cold expression, Qi Shengniang asked, "Shijie, was that correct?"
+
+Tajkis turned to her three other martial siblings, looking up at the sky, and said coldly, "In that case, Er Shige can watch in peace. You all deal with those other minnows; I'll see what that 'Dog Fart Sword' is like." After hearing Fang Dongbai's name, she knew this man was nicknamed 'Eight Arms Divine Swordsman,' and she deliberately used the insult 'Dog Fart Sword' to provoke Fang Dongbai.
+
+Fan Yao, upon hearing Tajkis's words, remained silent atop his camel, observing the approximately twenty enraged Beggars' Gang members. They had witnessed Tajkis and Qi Shengniang's kung fu demonstration and now surrounded the four teenage girls who had leaped down from their respective camels, swords in hand. A man in his twenties with seven bags on his back stood as the leader of his companions, who rhythmically struck the ground with their staffs. This was the opening of their widely known formation called the Dog-Beating Formation (Da Gou Zhen). This leader was clearly a Transmission Elder (Chuan Gong Zhanglao).
+
+On the other side, despite being enraged by Tajkis insulting him with crude words, nicknaming him 'Dog Fart Sword,' Fang Dongbai, who had eight bags on his back and served as a Law Enforcement Elder (Zhifa Zhanglao), showed no emotion. He faced Tajkis calmly.
+
+Qi Shengniang was not at all unfamiliar with this Beggars' Gang formation, as her master had explained how they worked, and she herself had even been trained by Douluo Haoyu on how to use a bamboo staff and participate in such formations. To her, if the leader standing outside the circle was disorganized, the formation would also collapse. The loud clattering of the bamboo staffs was meant to disrupt the opponent's concentration and instill fear before the fight began. She exclaimed, "Shijie, they'll circle around us before finally attacking in unison. Let's attack simultaneously at four different points!"
+
+Having said that, she immediately charged to the right, using the Maiden of Yue Sword Style taught by her master, to stab towards the chest of an opponent passing before her, regardless of who they were. Her goal was to get out of the circle as quickly as possible to attack the Transmission Elder who was giving commands from outside the circle. As soon as she moved, Yin Susu charged forward, Ah Luo to the back, while Mei Jian charged to the left.
+
+Yin Susu opened her attack with a lightning-fast thrust towards the throat of one of her opponents, but as she moved, her wrist flicked rapidly left and right, turning the movement into a simultaneous slash towards three opponents. This was the Yin family's sword style, taught by Yin Tianzheng.
+
+Mei Jian, who knew that the Beggars' Gang was involved in the incident that killed her parents in this very vicinity, had secretly considered this fight an opportunity for revenge. She used the Persian sword style taught by Tajkis, utilizing her exceptional qinggong to move towards the opponent passing on her left. As her sword began to move, she rotated her wrist in the opposite direction to the group's circling movement. Horrified screams were heard as her sword simultaneously sliced off the earlobes of five opponents. Mei Jian's sword technique was completely alien to the Beggars' Gang. Her speed of movement appeared ghostly, which was indeed the effect the Ming Cult members intended to create on their opponents. The formation immediately fell into disarray on the left side as Mei Jian's opponents were severely wounded.
+
+Ah Luo, attacking towards the rear, had also harbored resentment against the Beggars' Gang members who often bothered her on the streets since childhood. But unlike Mei Jian, she wanted to use this opportunity to play around. Ah Luo's sword style was fundamentally the same as Mei Jian's, taught by Tajkis, but having been with Tajkis longer, she had learned how to apply the same sword techniques using a staff. After successfully seizing a bamboo staff from her first opponent — the man who had a large mole on his forehead — and knocking him down, she planted her sword in the ground, laughing, and twirled the bamboo staff lightly as she said, "Your Dog-Beating Formation has already broken apart. Your training is poor; it's time to receive your punishment!" She sealed four acupuncture points on both arms and the knees of the still-stunned beggar, poking the large mole on his forehead with the tip of her staff, then moved with lightning speed towards another beggar in front of her before that beggar, who had already swung the staff in his hand, realized his target had vanished. Ah Luo's staff loudly smacked the beggar's backside, precisely directing him to receive a blow from his own companion's staff, which was aiming for Ah Luo. Inevitably, the unfortunate beggar received a strike from his own friend's staff.
+
+Next, Ah Luo, after positioning her target with ghostly speed, moved towards the beggar who had just hit his own friend. She again smacked that beggar's backside, then pushed him towards another companion, who was swinging a staff to chase her. This beggar also ended up receiving a blow from his own friend. This sequence continued until ten beggars lay incapacitated after receiving Ah Luo's staff blows to their backsides and their own friends' staff blows to their chests or heads.
+
+The last beggar Ah Luo struck ended up with four vital acupuncture points sealed, rendering his arms and legs immobile. With a satisfied smile, Ah Luo now stood watching the seemingly uneven battle between Yin Susu and ten other beggars. She was ready to intervene, as the fight appeared imbalanced. Yin Susu was trapped in the center and always returned to this state after managing to escape. But then, Yin Susu suddenly leaped high, moving her left hand rapidly. Ah Luo saw several extremely fine needles launch from her hand, successively targeting five opponents. These five initially didn't feel the fine needle pricks in their necks. Only two seconds later, they began to feel intense itching spreading rapidly throughout their bodies. In a panic, they started screaming, "Demoness! You used poison!"
+
+When they heard that scream, five of their companions began to feel the same thing, after Yin Susu's hand had moved earlier when she leaped behind them.
+
+Elsewhere, Qi Shengniang, who had initially broken through the opponent's defense on the right, had quickly managed to seal the Transmission Elder's acupuncture points with her sword hilt. The seven-bag beggar had absolutely not expected this small girl to break through so quickly. His bamboo staff was a second too late when the threat of Qi Shengniang's sword tip arrived two inches from his throat. He gasped, but then Qi Shengniang's wrist rotated, turning the sword tip into its hilt. After striking an acupuncture point on his neck, which enabled her to do so, Qi Shengniang incapacitated him by sealing several other acupuncture points on his back.
+
+They now watched the fierce battle between Tajkis and Fang Dongbai, which was evenly matched. Fang Dongbai's nickname, 'Eight Arms Divine Swordsman,' was no exaggeration. Many times, he nearly injured Tajkis with the speed of his sword. However, although his qinggong was not weak, unfortunately, it could not match Tajkis's near-perfect qinggong. Disadvantaged in close-quarters combat that relied on hand speed, Tajkis utilized her advantage, moving around Fang Dongbai and occasionally seizing opportunities to launch thrusts or slashes from the center. If Fang Dongbai tried to break out of the circle she created, Tajkis's shadow would swiftly intercept him, with her sword aimed at his chest, then disappear, creating a new circle.
+
+When his ears caught the pained screams of some of his other companions, after their earlobes had been cut off by Mei Jian, he leaped backward, shouting loudly, "Stop!"
+
+Tajkis stopped moving and burst into laughter. "Alright, no need to kneel before me."
+
+Fang Dongbai, grinning widely, adopted the surname Tajkis had used. "Miss Guan, I don't think our groups need to be enemies. If you only wish to take the wealth of those rich people, couldn't we simply divide the territory in Zhangjiakou? We could split it into four quarters; which area would you like to take?"
+
+Now Fan Yao interjected. "Tajkis, this isn't a bad idea." He then turned back to Fang Dongbai. "Fang Zhanglao, you choose first."
+
+"Very well," Fang Dongbai replied, pleased. "My group and I will take the southern territory."
+
+For Tajkis, this was quite a stroke of luck. She felt that since Fang Dongbai and his group had attracted the attention of law enforcement in Dadu, the southern area would definitely be more disadvantageous for them. To expedite their escape after they were satisfied with Zhangjiakou, she then added, "In that case, we'll take the northern and western parts! From now on, we won't interfere with each other. Fang Zhanglao, I hope you can keep your word!"
+
+Extending his right hand to gesture for Tajkis's group to pass, Fang Dongbai said, "Miss Guan — please!"
+
+
