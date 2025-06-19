@@ -142,7 +142,6 @@ Begitu tiba di Shandong, ia dengan segera menyukai Zhongyuan dan para pendudukny
 
 "Ki Son-yeo sudah lenyap ditelan bumi," pikirnya sambil menyeringai lebar, "Yang ada sekarang ini Qi Shengniang!"
 
-
 Dengan riang ia melangkah, meneruskan pejalanan ke Kaifeng, busur dan anak panah di punggungnya, pedang panjang di tangan kirinya.
 
 ## *Kaifeng, Juli 1327: Peri Kecil Memasuki Kaifeng*

@@ -202,4 +202,95 @@ The capital city, Dadu (present-day Beijing), was planned according to the "Arti
 Focus on Functionality and Aesthetics:
 The Yuan Dynasty architecture aimed to balance practical considerations with aesthetic appeal, incorporating elements like adaptable windows and doors alongside decorative features. 
 
+---
+
+## Mingzun
+
+The correct term is *Mingzun* 明尊, *not Mingjun* 明軍, which means 'Bright Army'. Mingzun here means "Radiant Lord".
+
+*Unlike Jin Yong's narrative, where Manichaeism has been persecuted during the late Yuan Dynasty, in here, we try to maintain historically correct nuances found in https://en.wikipedia.org/wiki/Chinese_Manichaeism#Song_and_Yuan_dynasties, quoted as follow:*
+
+"Their fortunes changed during the Mongol-led Yuan dynasty, where the religion enjoyed a stable existence while the Sakya sect of Tibetan Buddhism served as the ‘’de facto’’ state religion of the Yuan.[16] Two elaborate silk paintings survive from this era: Manichaean Diagram of the Universe and Sermon on Mani's Teaching of Salvation. These works provide an insight into Yuan-era cosmology of Chinese Manichaeism."
+
+The term Hong Toujin Qiyi 紅頭巾起義, simplified to Hongjin Qiyi 紅巾起義, was used later on, after Peng Yingyu invented the Red Headband as their 'uniform' everywhere.
+
+---
+
+**In Part 8**:
+
+*With Wei Yixiao now witnessing firsthand the "fortune" that can be found amidst the chaos, how will his initial disapproval transform, and will he join Fan Yao and Tajkis in their opportunistic endeavors? What immediate consequences will their actions have as the conflict around Shangdu intensifies?*
+
+*Rencana apa pun yang ada di benak Yang Dingtian saat ini, semuanya itu pastilah memerlukan uang*, pikir Wei Yixiao. Jika dalam waktu singkat, kedua orang ini bisa mengumpulkan begitu banyak harta benda dengan cara sesantai ini, bagaimana Yang Dingtian akan menolaknya? Otak Wei Yixiao berputar cepat, dan segera mendukung gagasan Tajkis dan Fan Yao untuk tinggal lebih lama di sini. Jika perang terjadi, mereka pada dasarnya tidak akan mendukung pihak mana pun, sesuai dengan perintah Yang Dingtian, berarti mereka juga tidak melanggar perintah!
+
+Wei Yixiao kemudian malah membantu kedua anak muda itu merampok lebih banyak harta benda dari rumah-rumah yang ditinggalkan pemiliknya di sekitar Shangdu dan Zhangjiakou.
+
+
+*And the following continuation align perfectly with https://en.wikipedia.org/wiki/War_of_the_Two_Capitals#War, as quoted here:
+
+"The restorationists from Manchuria and eastern Mongolia launched a surprise attack on the loyalists. Their army under the command of Bukha Temur and Orlug Temur, descendants of Genghis Khan's brothers, surrounded Shangdu on 14 November, at a time most of the loyalists were involved on the Great Wall front."
+
+Thus, our narrative should be:
+
+Bulan berikutnya, Daulat Syah dan Permaisuri Babukhan mengirim serangan ke arah Tembok Besar sebagai reaksi keras atas tindakan El Temur dan para sekutunya, yang mengumumkan penobatan Tugh Temur sebagi Khan Agung dan Kaisar Dinasti Yuan, dengan mengabaikan pengumuman yang mereka buat sebelumnya tentang pengangkatan Ragibagh.
+
+Tetapi, pada tanggal 14 November, memanfaatkan pertahanan yang melemah di Shangdu setelah keberangkatan pasukan itu, Bukha Temur dan Orlug Temur yang baru tiba langsung mengepung Shangdu, menjadikan keadaan ibukota itu dalam keadaan darurat. Lebih banyak lagi orang-orang kaya dan pejabat bukan militer yang melarikan diri, entah membelot ke kubu Dadu atau sekedar ingin menyelamatkan harta benda dan keluarga mereka.
+
+Wei Yixiao, Fan Yao dan Tajkis mengalami panen besar-besaran di Shangdu. Mereka hanya perlu menggeser sedikit kemah mereka lebih dalam ke arah hutan untuk menghindari pertemuan langsung dengan para prajurit Bukha Temur atau Orlug Temur yang sedang mengepung Shangsu dari lingkar luar itu.
+
+Di dalam situasi semacam ini, mereka mendengar kabar dari Yue Sanguo yang kini telah tiba di Karakorum, bahwa pasukan Kusala telah mendekat ke Karakorum, dengan dukungan sepenuhnya dari kalangan Chagatai. Fan Yao dan Tajkis tak tahu apakah berita ini seharusnya membuat mereka bergembira ataukah menangis. Bagaimana pun juga, Yesun Temur selama menjabat sebgai kaisar telah banyak menguntungkan suku Han dan suku-suku lain di luar suku Mongolia sendiri. Diusirnya sejumlah besar biksu Tibett dari Zhongyuan adalah bukti nyata yang tak dapat dipungkiri.
+
+Fan Yao berkata, "Sekarang tak hanya dari Dadu atau timur seperti Liaodong. Dari arah selatan, Henan sudah jelas dipegang Jendral Bayan, lalu Tugh Temur berhasil mengumpulkan dukungan dari sekitar Jiangnan, dan sekarang, dari utara Shangdu juga tertekan oleh Kusala yang membawa kalangan Chagatai! Setelah tiba di Karakorum, sudah jelas semua pangeran Mongolia yang ada di situ akan mendukung keluarga Khayishan ini. Bisa kita pastikan dalam perang ini Shangdu akan kalah."
+
+"Celakanya," tambah Tajkis, "Keluarga Kusala hampir bisa dipastikan akan berpihak kepada *Lama-Lama* itu, jadi siapa pun yang akan berkuasa dari kakak beradik ini, mereka akan kembali mengijinkan *Lama-Lama* itu masuk ke sini lagi, dan pasti akan mengganggu urusan kita!"
+
+"Juga mengganggu rakyat," tegas Fan Yao.
+
+---
+
+**Around 1330:**
+
+In order to eleviate Ming Jiao and to blame most misfortune to Chaghan Temur as one of his major antagonist, Jin Yong has made several flaws that can be easily recognized by a historical aware readers:
+
+1. How can a 2-3 years old child like Chaghan Temur command a fantastic instruction to Ah Da (actually Fang Dongbai) and his two other brothers, to force Yu Daiyan telling them where Tulong Dao is? Chaghan is clearly born in 1328, it cannot be moved around.
+
+2. At this time, still reasonable if we use Ah Da, who already at his peak 27. But Jin Yong did not clearly tell the sory about Ah Er and Ah San, except that Ah San has the powerful kungfu named Da Li Jingang Zhi (大力金剛指), or "Huge Power Vajra Finger".
+
+3. Another fantastic flaw is, Jin Yong tell the readers that Chaghan was already a "Prince" at the time. How can it be, when even the powerful General Bayan and El Temur cannot be a prince due to their lack of royal lineage? Chaghan is clearly a decendant of Naiman tribe, how can he be a prince with no obvious fantastic service? Even a fantastic service would not make someone in *only 2nd rank chaste* in Yuan Dynasty system a Royal Prince!
+
+From this point, the section of Jin Yong's original narrative must be carefully altered, in order to be more aligned wih historical context, and to make the wuxia story itself more reasonable.
+
+---
+
+*Keep Chaghan Temur in Context: If Chaghan Temur is to appear, he must appear as a child, perhaps a son of a significant figure, observed by the Ming Cult, rather than an active participant in political or martial schemes. This allows for his future development into a major antagonist without breaking historical logic in his youth.*
+- He's already appeared, remember Li family's newborn child in Senqiu early on, who was called 'Tingrui' by Li Xiansheng's wife? He is our Chaghan Temur! This is why Chaghan Temur would call himself with 'Li' surname later on (Li Chahan).
+
+
+The currently appeared before Yang Xiao, Wei Yixiao, Fan Yao and Tajkis, is the same two Shaolin monks who would reappeared in front of Zhang Cuishan a few years later, n 1330s, when Zhang Cuishan is investigating the attack on Yu Daiyan, and gets blamed for the killing of the people in Longmen Biaoju. So, the encounter in the way from Datong to Dadu will served as foreshadowing the future role for these Shaoln monks.
+
+*Foreshadowing Established: Their current accusation of Kongjian Dashi's murder against the Ming Cult sets the stage for their later wrongful accusation of Zhang Cuishan. It establishes a pattern of Shaolin mistakenly blaming Ming Cult members for incidents they are not responsible for, often due to misleading evidence.*
+- But, unfortunately, Xie Xun was indeed involved. Kongjian Dashi himself *let Xie Xun strikes him many times* without sriking back, in order to make Xie Xun repent, believing that his new student, Cheng Kun, who at the time was converted to Buddhism, under Kongjian Dashi's mentorship, with new name 'Yuanzhen'. Unfortunately, Cheng Kun, in Xie Xun's last strike using Kongtong Pai's Qi Shang Quan, is secretly helping Xie Xun (his former disciple), murder Kongjian Dashi. This is why Kongjian Dashi got 'killed by Xie Xun', who obviously could not kill him.
+
+---
+
+Okay, let's use his term Longmen Biaoju 龍門鏢局 for consistency with Jin Yong's original works! In Chapter 3, he main story begin, and, after Yu Daiyan's incident, the following narrative comes up:
+
+*The man with the booming voice says, “You think we don’t have enough business here? If you won’t give me your name, then you can take your business elsewhere.” The person with the woman’s voice says, “But the Dragon Gate Escort Agency is the only decent one around. I don’t care for the others. However, if you can’t make a decision, get your boss out here.” The man with the booming voice says in an irritated voice, “I’m the boss. And right now, I have some other business to attend to. Please leave.”*
+
+The person with woman's voice was actually the current timeframe's (in her early 16) Yin Susu, who would eventually meet Zhang Cuishan, amd become he mother of Zhang Wuji. Maybe we can insert more foreshadowing here, in current timeframe, as she, in our version of the same story, appeared as one of the eyewitnesses of the actual Xie Xun's act, but also does not know the whole story.
+
+---
+
+Not so, as the current timeframe is only "*Dadu, November 1328: Kekacauan Besar Yang Menguntungkan*", Yu Daiyan's incident has not yet happened, and we haven't setup the whole framework for tht event yet. But Yin Susu would eventually massacre the Longen Biaoju herself! And she's already met Fang Dongbai in this event, altthough Fang Dongbai himself still a member of the Beggar Sect, and neither Ah Er and Ah San has been introduced. In Yu Daiyan's incident, Yin Susu herself would play major role, that would be her deepest regret after finally fall in love with Zhang Cuishan and eventually becomes Zhang Wuji;s mother.
+
+---
+
+☝ Still incorrect! As I said before, the quoted text is in the main story, *after* Yu Daiyan's incident. Current timeframe is still in toward the aftermath of **The War of The wo Capitals**. Yang Xiao and the other members of Ming Jiao does not even present at Long men Biaoju, in fact, only Yin Susu herself. At the time, Yin Tianzheng has already separate himself from Ming Jiao.A lot of things had happened! A few thigs we can foreshadow are:
+
+1. Fang Dongbai's future role.
+2. Two powerful candidate to replace unbelievable toddler as the man culprit are actually General Bayan and El Temur, who are at their peak as the major powerful Yuan figures in the aftermath of The War of The Two Capitals.
+3. One of the two generals must be linked to the initial knowledge of Tulong Dao at the time, in their own rights respectively, as the Tulong Sabre is the symbol of military power!
+4. One of the two military figures (or both) will be connected to Fang Dongbai, as Fang Dongbai is currently present in Shangu, Zhangjiakou (maybe finally Dadu).
+
+
+---
 

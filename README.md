@@ -6,6 +6,9 @@ The original Chinese title, Yitian Tulong Ji (倚天屠龍記), carries a profou
 
 It's worth noting that the popular Indonesian and English titles ("The Heavenly Sword and the Dragon Slaying Sabre" and "Kisah Pedang Langit dan Golok Pembunuh Naga") actually derive from folk tales circulating within Jin Yong's story itself, which eventually became associated with the two mythical weapons, 'Yitian Jian' (Heavenly Sword) and 'Tulong Dao' (Dragon S Slaying Sabre). Interestingly, the characters for 'Sword' (劍 - Jian) and 'Sabre' (刀 - Dao) aren't explicitly in the original title, reflecting their origin in these evolving legends. This very verse is frequently quoted by Zhang Wuji throughout the narrative.
 
+> **Note:**
+> This branch is created for specific `Fresh Framework`, if you want plain markdown files, you should chekout the main or master branch instead.
+
 
 ## Unraveling the Original Narrative
 
@@ -42,6 +45,9 @@ However, certain aspects of Jin Yong's narrative in this section always felt a b
 
 10. *The "Holy Maiden" Anomaly in Manichaeism*: A glaring inconsistency in Jin Yong's narrative is the assertion that Persian Manichaeism taught its followers to have a 'Holy Maiden' as their leader. This is particularly strange, considering Manichaeism itself originated from the spiritual experiences of a Persian named 'Mani,' who was one hundred percent male. How, then, could it evolve into a doctrine that prioritizes a woman as its leader? This specific incongruity, in our story, deeply troubles Xiao Zhao, who is clearly in love with, and loved by, Zhang Wuji!
 
+Unlike Jin Yong's narrative, where Manichaeism has been persecuted during the late Yuan Dynasty, in here, we try to maintain historically correct nuances found in https://en.wikipedia.org/wiki/Chinese_Manichaeism#Song_and_Yuan_dynasties, quoted as follow:
+
+"Their fortunes changed during the Mongol-led Yuan dynasty, where the religion enjoyed a stable existence while the Sakya sect of Tibetan Buddhism served as the ‘’de facto’’ state religion of the Yuan. Two elaborate silk paintings survive from this era: *Manichaean Diagram of the Universe and Sermon on Mani's Teaching of Salvation*. These works provide an insight into Yuan-era cosmology of Chinese Manichaeism."
 
 ## Why Read Paladin in the Violent Winds?
 

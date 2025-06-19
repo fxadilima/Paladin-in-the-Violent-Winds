@@ -20,7 +20,7 @@ Jika kita mencetak halaman tersebut menjadi sebuah `PDF`, di *halaman 56* akan d
 
 Cerita dalam karya Jin Yong di bagian ini terasa agak aneh:
 
-1. Chaghan Temur aslinya tak pernah disebutkan dengan gamblang sebagai seorang 'Wangye' (Raja atau Pangeran) Dinasti Yuan, meskipun ia sungguh adalah pembela Dnasti Yuan sejati yang punya pengaruh militer sangat kuat. Akhirnya, menjadi yang terkuat sebelum ia sendiri tewas dibunuh dalam perjalanan ke Yidu.
+1. Chaghan Temur aslinya tak pernah disebutkan dengan gamblang sebagai seorang 'Wangye' (Raja atau Pangeran) Dinasti Yuan, meskipun ia sungguh adalah pembela Dinasti Yuan sejati yang punya pengaruh militer sangat kuat. Akhirnya, menjadi yang terkuat sebelum ia sendiri tewas dibunuh dalam perjalanan ke Yidu.
 
 2. Chaghan Temur meninggal dalam usianya yang baru 34 tahun. Ia dilahirkan pada tahun 1328, menurut penanggalan Masehi, dan meninggal pada tanggal 6 Juli 1362, dalam perjalanan ke Yidu. *Bagaimana seorang Zhao Min yang berusia dua puluhan bisa hadir menemani Zhang Wuji sebelum ia meninggal?*
 

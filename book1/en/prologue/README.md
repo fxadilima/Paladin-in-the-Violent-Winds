@@ -135,3 +135,91 @@ The Yuan's system of administrative provinces was a significant development in t
 - Later Ming Dynasty:
 The Yuan Dynasty was eventually replaced by the Ming Dynasty, and the Genghisid rulers retreated to the Mongolian Plateau. 
 
+---
+
+## Chaghan Temur Lineage
+
+- **Born**: 1328
+- **Great-grandparent**: Kuokuotai
+- **Assassinated**: July 6, 1362
+- **Parents**: Alawen
+  + *Parents*: Naimantai
+   The new Yuan emperor, Tugh Temür sent him **Naimantai**, a descendant of Muqali, in order to mollify his anger with an imperial seal. https://en.wikipedia.org/wiki/Eljigidey
+   
+Looks like there's a doubtful account regarding (said to be) Chaghan Temur's father Alawen. But when we search bout Chaghan Temur's lineage, here's what we get:
+
+*Chaghan Temur, a prominent Yuan Dynasty military leader, was a fourth-generation descendant of a Naiman clan that had settled in Shenqiu, Henan. His lineage, while originating from a Turkic background, became increasingly intertwined with both Mongol and Chinese culture by the time of the Red Turban Rebellions. He was known by his sinicized name Li Chaghan and also used the courtesy name Tingrui.*
+
+Here's a more detailed breakdown:
+
+- Naiman Origins: Chaghan Temur's family belonged to a Naiman clan that had migrated to Shenqiu in Henan. 
+- Four Generations: He was a fourth-generation descendant of this clan. 
+- Early Ancestry: His great-grandfather assisted the Mongol conquest of China in the 13th century. 
+- Cultural Blending: By the time of the Red Turban Rebellions, his lineage reflected a blend of Mongol and Chinese cultural influences. 
+- Sinicized Name: He was known by the sinicized name Li Chaghan. 
+- Courtesy Name: He also used the courtesy name Tingrui. 
+- Red Turban Rebellions: He rose to prominence fighting against the Red Turban rebels, becoming a powerful regional leader under the Yuan Dynasty. 
+- Adopted Son: Chaghan Temur adopted his nephew, Köke Temür (also known as Wang Baobao), as his son and successor. 
+- Assassination: Chaghan Temur was assassinated in 1362 by two former Yuan generals. 
+
+No mentioned of his parent's name whatsoever!
+
+But, if we cross-check by searching using key 'chaghan temur's grandfather', here's what we got:
+
+- **Born**: 1328
+- **Great-grandparent**: Kuokuotai
+- **Assassinated**: July 6, 1362
+- **Parents**: Alawen
+  + *Parents*: Naimantai
+   The new Yuan emperor, Tugh Temür sent him **Naimantai**, a descendant of Muqali, in order to mollify his anger with an imperial seal. https://en.wikipedia.org/wiki/Eljigidey
+
+But **Muqali**, a great general of Genghis Khan, not known to be a Naiman!
+
+---
+
+Thank you for clarifying! Thus, I can continue using my already established historical account on Chaghan Temur's lineage:
+
+First Source (General Lineage Description): This source states that Chaghan Temur was a fourth-generation descendant of a Naiman clan that settled in Shenqiu, Henan. It explicitly mentions his great-grandfather assisted the Mongol conquest of China. It also notes his sinicized name Li Chaghan and courtesy name Tingrui. Critically, this source does not name his parents or grandparents, only referring to a "Naiman clan.
+
+*As Caelina grows up under the guidance of this wise but burdened grandfather, how will these hidden anxieties and her own innocent questions about life and death shape her outlook? Will the turbulent events Yerkin foresees eventually force them to confront the very dangers he wishes to avoid?*
+- Yerkin isn't sure, but he keep remember something else he once overheard from his friends, while casually drinking wine together:
+
+---
+
+*Allah memang membangkitkan orang mati*, pikir Yerkin, tapi ternyata orang-orang mati yang dibangkitkan-Nya itu kadang-kadang *orang yang salah*. Tetapi, sampai di sini, ia menjadi agak terhibur, teringat akan obrolan dengan teman-temannya di kedai arak baru-baru ini.
+
+Salah seorang teman Yerkin suka bercerita tentang Shaolin di wilayah barat ini, yang, seperti anggapan Caelina, memang menjadi penolong bagi banyak orang. Biara ini sendiri didirikan oleh *Huogong Toutuo*[^huogong-toutuo] dari Shaolin asalnya, di Henan. Ketika sedang menceritakan tentang hal ini, mereka lalu menceritakan sesuatu tentang legenda pedang dan golok, yang kemudian berkembang menjadi sebuah syair.
+
+[^huogong-toutup]: Huogong Tóutuó (火工头陀), secara literal berarti "Biksu pengawas api", alias biksu yang bertugas di dapur.
+
+Tanpa sadar, saat ini Yerkin jadi bergumam, menirukan syair yang dinyanyikan oleh teman-temannya saat itu, "*Wulin Zhìzun, baodao tu long, haoling tianxia, mo gan bu cong! Yǐtian bu chu, shuí yu zhengfeng?*[^syair-1]" sambil menggerak-gerakkan kepalanya, menirukan sastrawan suku Han yang menjadi gurunya sendiri sejak kecil. Kini, ia sendirilah yang mengajarkan segala tradisi dan budaya suku Han kepada cucunya ini. Ia tertawa ringan setelah membaca syair itu, berkata dalam bahasa Naiman, yang juga dimengerti cucunya dengan baik, "*Pahlawan besar memegang golok untuk menyembelih naga. Menyatukan segala makhluk di bawah kolong langit. Siapa berani membantah perintahnya? Jika Kehendak Surga tidak turun, siapa yang berani menantangnya?*" Lalu kembali menggunakan bahasa Han, "Xiao Xiannu, ini seperti di jaman Yesus dulu, semua orang sibuk berusaha menjadi pahlawan besar dengan cara membunuh orang, tetapi *Allah* sendiri yang mengangkat 'Pahlawan Terbesar' di sepanjang kehidupan manusia, dengan cara di luar dugaan mereka semua. Kau tahu, bagaimana cara mereka mengenali pahlawan besar itu?"
+
+[^syair-1]: Bunyi aslinya adalah 武林至尊，寶刀屠龍，號令天下，莫敢不從！倚天不出，誰與爭鋒？
+
+Yerkin dengan senang mengamati usaha cucunya untuk memahami apa yang dimaksud. Kening anak perempuan kecil itu berkerut sejenak, lalu menggelengkan kepalanya, balas bertanya, "Yeye, Hai'er tidak tahu, Yesus tidak mengatakannya!"
+
+"Nah," kata Yerkin, tersenyum, "Sekarang kau ingat baik-baik. Ini seperti pepatah suku Han kuno, '*Feilong Zai Tian*' — Naga terbang di angkasa! Naga itu yang akan mengatakannya, dan pada saatnya nanti, setelah dewasa, *kau* akan mengerti."
+
+## *Shenqiu, Juni 1328: Kelahiran Naga Pertama*
+
+Di tahun naga ini, di Shenqiu, Henan, jauh dari tempat kediaman Caelina dan kakeknya, keluarga Li sedang merayakan kelahiran putra pertama mereka. Ayah anak itu dalam keseharian hanya dipanggil 'Li Xiansheng', meskipun ia sendiri bukan berasal dari suku Han. Ibunya memangs seorang wanita Han setempat, tetapi ayahnya berasal dari suku Naiman, yang sudah lama ditaklukkan oleh Genghis Khan. Leluhurnya ikut serta di dalam perjuangan Genghis Khan ketika sedang berjuang melawan bangsa Jin, di jaman Guo Jing masih muda. Tetapi cerita ini hanya beredar di kalangan keluarga mereka sendiri, karena leluhur Li Xiansheng tak pernah diangkat menjadi pejabat tinggi di dalam pemerintahan Genghis Khan maupun cucunya, Kubilai Khan, meskipun leluhurnya. akhirnya, pindah ke Henan ini.
+
+Beberapa orang mengait-ngaitkan leluhur Li Xiansheng dengan Mukhali, yang adalah jendral besar Genghis Khan. Tetapi Li Xiansheng buru-buru berkata, "Aiyooo! Kalau leluhurku punya prestasi sebesar itu, bagaimana *aku* sekarang ini hanya berjualan makanan di Shenqiu? Setidaknya ayahku akan menjadi *Zhangguan*!"
+
+"Li Xiansheng," kata temannya, seorang penjual babi panggang, "Tahun ini adalah tahun Naga! Kalau melihat muka anakmu, kurasa Buddha sedang mengabulkan harapanmu itu, dia akan menjadi seorang *Zhangguan* nantinya!"
+
+Li Xiansheng melirik istrinya dengan tatapan penuh makna. Istrinya, seorang perempuan campuran antara suku Han dengan suku Merkit, berkata dengan ringan kepada penjual babi panggang itu, "Ah Qiu, kami sudah beruntung tidak dilarang menikah, dan akhirnya anak ini lahir. Jangan bermimpi terlalu muluk ah!"
+
+
+
+---
+
+```text
+Pahlawan besar memegang golok untuk menyembelih naga.
+Menyatukan segala makhluk di bawah kolong langit. 
+Siapa berani membantah perintahnya?
+Jika Kehendak Surga tidak turun, siapa yang berani menantangnya?
+```
+
+[^syair-1]: Bunyi aslinya adalah 武林至尊，寶刀屠龍，號令天下，莫敢不從！倚天不出，誰與爭鋒？
+

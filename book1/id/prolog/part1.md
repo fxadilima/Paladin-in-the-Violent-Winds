@@ -173,7 +173,7 @@ Ayahnya membuka mata, meliriknya sekilas, lalu kembali memejamkan matanya, berka
 
 ---
 
-Keesokan harinya, Ki Ja-oh, sementara menikmati sarapan bersama keluarganya, berkata dengan muka berseri-seri, "Haha! Sekarang rencana Wang Ko itu dengan sendirinya gagal, setelah *Khagan* dibunuh!" Ia tak pernah menyukai Wang Ko, yang sudah jelas berambisi merebut tahta dari Raja Chungsuk. Keluarganya rata-rata sudah bosan mendengar ia memaki-maki nama ini dalam setiap sarapan.
+Keesokan harinya, ketika sedang menikmati sarapan, Ki Ja-oh berseru dengan wajah berseri-seri, "Haha! Sekarang rencana Wang Ko itu dengan sendirinya gagal, setelah *Khagan* dibunuh!" Ia tak pernah menyukai Wang Ko, yang sudah jelas berambisi merebut tahta dari Raja Chungsuk. Keluarganya rata-rata sudah bosan mendengar ia memaki-maki nama ini dalam setiap sarapan.
 
 Istrinya, Yi Haeng-gom, hanya tertawa untuk mengimbangi ceritanya, berkata, "Maksudmu Son-yeo jadi punya kesempatan menjadi *permaisuri* nantinya, begitu, kan?"
 
@@ -181,7 +181,7 @@ Semua anak laki-laki mereka yang sudah jauh lebih besar, Ki Sik, Ki Ch'ol, Ki Wo
 
 Tetapi, mendengar mereka menyebutkan nama panggilannya, Ki Son-yeo mengerutkan alisnya, berkata dengan tajam, "Aku tidak mau menikah dengan Wang Jeong itu!"
 
-Seketika, suasana riang itu tergantikan oleh ketegangan. Semua mata menatap ke arahnya dengan penuh teguran. Yi Haeng-gom melirik suaminya dengan cemas. *Anak bodoh ini tak seharusnya mengatakan apa-apa di sini*, sementara mereka makan, pikirnya.
+Keceriaan di meja makan lenyap seketika, berganti hening menegangkan. Semua mata menatap ke arahnya dengan penuh teguran. Yi Haeng-gom melirik suaminya dengan cemas. *Anak bodoh ini tak seharusnya mengatakan apa-apa di sini*, sementara mereka makan, pikirnya.
 
 Ki Sik bertanya, alisnya naik, "Kau ingin kita semua dihukum mati?"
 
