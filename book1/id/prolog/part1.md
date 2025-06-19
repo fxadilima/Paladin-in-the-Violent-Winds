@@ -1,7 +1,7 @@
 # Prolog
 ## *Haengju, 1320: Peri Kecil Yang Pintar*
 
-Suatu sore di kota Haengju, yang terletak di sebelah selatan Goryeo, seorang anak perempuan yang kira-kira berusia lima tahun sedang mendengarkan cerita gurunya dengan penuh perhatian. Matanya hampir tak berkedip. Sesekali ia bertanya dengan penuh rasa ingin tahu dalam bahasa Han yang terdengar nyaris tak ada bedanya dengan bahasa Han penduduk Jiangnan. Ia dipanggil Ki Son-yeo[^ki-sonyeo], tetapi gurunya memberinya sebuah nama unik yangs sangat indah 'Qi Shengniang'[shengniang], yang memakai marganya sendiri 'Ki', tetapi diucapkan dalam bahasa Han, lalu menambahkan nama yang mengandung makna 'Gadis Suci'.
+Suatu sore di kota Haengju, yang terletak di sebelah selatan Goryeo, seorang anak perempuan yang kira-kira berusia lima tahun sedang mendengarkan cerita gurunya dengan penuh perhatian. Matanya hampir tak berkedip. Sesekali ia bertanya dengan penuh rasa ingin tahu dalam bahasa Han yang terdengar nyaris tak ada bedanya dengan bahasa Han penduduk Jiangnan. Ia dipanggil Ki Son-yeo[^ki-sonyeo], tetapi gurunya memberinya sebuah nama unik yangs sangat indah 'Qi Shengniang'[^shengniang], yang memakai marganya sendiri 'Ki', tetapi diucapkan dalam bahasa Han, lalu menambahkan nama yang mengandung makna 'Gadis Suci'.
 
 [^shengniang]: Sheng Niang (聖娘), 'Holy Maiden' atau 'Gadis Suci'.
 [^ki-sonyeo]: Marganya memang Ki '기', dua karakter Son-yeo (소녀) ini hanya bermakna 'anak perempuan', juga akan diterjemahkan menjadi 'Niang' (娘) dalam bahasa Han.
@@ -28,7 +28,7 @@ Mata tua Douluo Haoyu berbinar, ketika berkata, "Shengniang, kau terlalu terpaku
 
 Ki Son-yeo memandang gurunya dengan penasaran. "Wu Wei?" diam sejenak, lalu bertanya, "Shifu, *dizi"[^dizi] tidak mengerti."
 
-[wu-wei]: Wu Wei (無為), ini bisa diartikan "tanpa usaha".
+[^wu-wei]: Wu Wei (無為), ini bisa diartikan "tanpa usaha".
 [^dizi]: Dizi (弟子), "Murid". Ini cara seorang murid memanggil dirinya sendiri di hadapan gurunya.
 
 "Nah, kau lihat, sekarang Shifu sudah tua," kata Douluo Haoyou, tertawa. "Pamanmu, tentu saja jauh lebih kuat. Bagaimana Shifu akan bisa menjatuhkannya?"
