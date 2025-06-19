@@ -26,7 +26,7 @@ Ki Son-yeo lalu berjalan ke arah kanan, melewati Douluo Jing, yang juga dianggap
 
 Mata tua Douluo Haoyu berbinar, ketika berkata, "Shengniang, kau terlalu terpaku pada *cara*. Sebenarnya Shifu juga tidak melakukannya seperti itu. Ada banyak *cara* untuk melakukan segala sesuatu, yang paling benar adalah *Wu Wei*[^wu-wei]."
 
-Ki Son-yeo memandang gurunya dengan penasaran. "Wu Wei?" diam sejenak, lalu bertanya, "Shifu, *dizi"[^dizi] tidak mengerti."
+Ki Son-yeo memandang gurunya dengan penasaran. "Wu Wei?" diam sejenak, lalu bertanya, "Shifu, *dizi*[^dizi] tidak mengerti."
 
 [^wu-wei]: Wu Wei (無為), ini bisa diartikan "tanpa usaha".
 [^dizi]: Dizi (弟子), "Murid". Ini cara seorang murid memanggil dirinya sendiri di hadapan gurunya.
@@ -77,19 +77,6 @@ Sebenarnya saat ini Ki Son-yeo sedang memikirkan cara untuk menakut-nakuti seora
 
 Gurunya tersenyum, memegang tangannya, berkata, "Ya, begitu juga, sebelum kau belajar menggunakan pedang, pelajari dulu, apa itu *qinggong*." Ki Son-yeo kemudian merasa tubuhnya melayang, ketika gurunya melompat dengan sangat ringan kembali ke atas batu besar, tempat mereka biasa berlatih kungfu.
 
----
-
-
-1 March	Ayurbarwada Buyantu Khan dies.
-19 April	Gegeen Khan, son of Ayurbarwada Buyantu Khan, becomes emperor of the Yuan dynasty
-
-*Back to 1320 timeframe. While 5 years old Ki Son-yeo was happy under tutelage of Douluo Haoyu in Haengju, in Dadu, a very different scene happened, The following is the historical text for the scene:*
-
-"Ayurbarwada died on March 1, 1320. After Khayishan died, Ayurbarwada reneged his promise later in his reign by making his own son Shidibala the new Crown Prince in 1316. Therefore, his son succeeded him instead of one of Khayisan's sons."
-
-"His death created two decades of political turmoil. The Khunggirat faction under Temuder and Dagi became even more powerful at the court. After the assassination of Shidibala in 1323, none of his descendants ruled the Empire."
-
-*Thus, our narrative should be:*
 
 ## *Dadu, 1 Maret 1320: Perebutan Tahta Di Ibukota*
 
