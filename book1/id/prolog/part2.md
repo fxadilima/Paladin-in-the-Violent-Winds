@@ -221,7 +221,7 @@ Ayah Mailaiti adalah Temuder, yang memang ikut serta mendukung gagasan Dagi untu
 
 "Ah, ya," kata Kusala, tertawa, "Nenekku yang hebat, memberiku gelar, hanya supaya aku tidak bikin ribut waktu penobatan Shidibala."
 
-"Aku hanya tahu, kau memang bikin ribut di Shaanxi," tandas Babusha, pandagannya penuh kritik, "Memang, saat itu kita belum menikah, aku tidak tahu masalahnya, tak usah kau katakan lagi. Tapi sekali lagi, itu semua sudah berlalu. Sekarang bukankah keluarga kita baik-baik saja, untuk apa kau kutak-katik lagi masalah seperti ini? Sumber bencana!" Ia mengeluh, memegang perutnya, "Aih, kau membuat anak ini berteriak!"
+"Aku hanya tahu, kau memang bikin ribut di Shaanxi," tandas Babusha, pandangannya penuh kritik, "Memang, saat itu kita belum menikah, aku tidak tahu masalahnya, tak usah kau katakan lagi. Tapi sekali lagi, itu semua sudah berlalu. Sekarang bukankah keluarga kita baik-baik saja, untuk apa kau kutak-katik lagi masalah seperti ini? Sumber bencana!" Ia mengeluh, memegang perutnya, "Aih, kau membuat anak ini berteriak!"
 
 Buru-buru Kusala membantunya duduk. Toghon ikut memegang tangan ibu tirinya. "*Niang*, tidak apa-apa, kan?"
 
