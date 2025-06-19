@@ -41,10 +41,6 @@ Suatu pikiran yang menyeramkan melintas di benak Ki Son-yeo, ia bergegas mengham
 
 Ia menangis dan menjerit sekuat tenaga untuk memanggil gurunya, tetapi tangan orang tua itu sudah menjadi dingin dan mulai kaku, tak ada hembusan nafas lagi dari lubang hidungnya.
 
----
-
-*Not long after, another heartbreaking moment occured fro Ki Son-yeo:*
-
 Saat ini, pertama kalinya, Ki Son-yeo merasakan seolah-olah setengah jiwanya ditarik keluar, terbawa oleh gurunya. Orang sering bercerita tentang kematian, ia belum pernah melihat sendiri, tetapi saat ini ia mengalaminya langsung, bahwa orang yang dikatakan 'mati' ini, ternyata tidak akan mungkin bisa bangkit lagi untuk selama-lamanya. Saat ini ia masih bisa melihat gurunya yang tampak sudah sangat tua, namun begitu, gurunya begitu berbahagia, seolah-olah baru menemukan sesuatu yang sangat memuaskan hatinya. Ia ingin berlama-lama memandangi gurunya, menyimpan gambaran tentang orang tua ini di dalam hatinya. Setelah ini, ketika orang menguburkan gurunya di dalam sebuah lubang, lalu menimbun lubang itu dengan tanah, ia tak mungkin lagi bertemu dengan gurunya ini.
 
 Hati mereka berdua saat itu terasa dingin, sedingin tangan dan kaki guru mereka, ayah kandung pamannya, yang saat ini sedang menangis di sebelahnya.
@@ -135,11 +131,11 @@ Kali ini Douluo Lian yang menghubungkannya, "Sebelumnya, Jiang Ziya adalah salah
 
 "Oh!" kata Ki Son-yeo. Ia segera melihat kaitan dari sisi cerita tentang Jiang Ziya dan Ji Chang, ayah kandung Jifa. Jifa sendiri nantinya akan menjadi Raja Wu dari Dinasti Zhou. Dalam cerita gurunya, Ji Chang adalah ahli meramal, dan merasa bahwa ia akan bertemu dengan 'binatang buruan besar' sebelum pergi berburu. Ketika melihat Jiang Ziya sedang memancing tanpa umpan, ia bertanya, 'Bagaimana kau akan mendapat ikan jika memancing tanpa umpan?', lalu Jiang Ziya menjawab, 'Setelah ikan-ikan itu siap kutangkap, *mereka akan datang sendiri*'. Meskipun terdengar seperti sedang bercanda, tetapi cerita gurunya itu meninggalkan kesan yang sangat mendalam bagi Ki Son-yeo, karena pada saat itulah Ji Chang dikatakan 'segera mengenali bahwa Jiang Ziya adalah binatang buruan yang dimaksud dalam ramalannya', sedangkan dari sisi Jiang Ziya, Ji Chang terlihat sebagai seorang pejabat yang berhasil mengenalinya ketika sedang berada di tempat yang tinggi. Sejak saat itu, menurut gurunya, Jiang Ziya menjadi guru Ji Chang dan Jifa sendiri. Hal ini membuat makna 'Feilong Zai Tian' menjadi masuk akal bagi Ki Son-yeo. Naga disitu dihubungkannya dengan Ji Chang, yang seorang pejabat.
 
-Tetapi penjelasan itu menjadi semakin tidak masuk akal jika dilihat dari sisi Douluo Jing, ia berkata, "Katakanlah yang kedua itu benar, tapi tampaknya 'Melihat naga di lapangan'[^jianlong-zai-tian] itu tidak melambangkan apa-apa bagiku."
+Tetapi penjelasan itu menjadi semakin tidak masuk akal jika dilihat dari sisi Douluo Jing, ia berkata, "Katakanlah yang kedua itu benar, tapi tampaknya 'Melihat naga di lapangan'[^jianlong-zai-tian-li-jian-daren] itu tidak melambangkan apa-apa bagiku."
 
 "Aha!" kata Yang Dao, "*Jianlong Zai Tian, Li Jian Daren*. Bayangkan, jika ada 'Naga' terlihat di lapangan, apa yang akan terjadi? Naga tadinya ada di langit yang tinggi. Orang di masa itu ketakutan jika melihat Dixin, Raja Shang saat itu, muncul di antara mereka. Ini adalah sebuah bencana, karena Dixin dianggap kejam. Tapi mengapa mereka merasa beruntung?"
 
-[jianlong-zai-tian-li-jian-daren]: Jianlong Zai Tian, Li Jian Daren (見龍在田 , 利見大人), "Adalah sebuah keberuntungan bertemu dengan pejabat".
+[^jianlong-zai-tian-li-jian-daren]: Jianlong Zai Tian, Li Jian Daren (見龍在田 , 利見大人), "Adalah sebuah keberuntungan bertemu dengan pejabat".
 
 "Tentu saja karena mereka merasa raja itu adalah sahabat mereka!" kata Ki Son-yeo, "Ji Chang adalah sahabat rakyat!"
 
