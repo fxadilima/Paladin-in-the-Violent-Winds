@@ -213,17 +213,17 @@ Babusha mendecakkan lidahnya dengan kesal. "Kau merusak suasana."
 
 Ayah Mailaiti adalah Temuder, yang memang ikut serta mendukung gagasan Dagi untuk menyingkirkan Kusala dan adiknya, Tugh Temur, dari ibukota, hanya gara-gara mereka bukan dilahirkan oleh seorang Khatun keturunan Khonggirad.
 
-"Tapi sekarang ini *ayah Mailaiti* sudah meninggal, *nenekmu* yang hebat itu juga sudah meninggal, bahkan, *Mailaiti* pun sudah meninggal," kata Mailaiti, agak jengkel, "Untuk apa kita membahas lagi masalah seperti ini? Bukankah kita masih dihargai orang di sini? Bagiku itu sudah cukup."
+"Tapi sekarang ini *ayah Mailaiti* sudah meninggal, *nenekmu* yang hebat itu juga sudah meninggal, bahkan, *Mailaiti* pun sudah meninggal," kata Babusha, agak jengkel, "Untuk apa kita membahas lagi masalah seperti ini? Bukankah kita masih dihargai orang di sini? Bagiku itu sudah cukup."
 
 "Itu *bagimu*, bagiku tidak," kata Kusala, "Bagiku, mereka semua harus membayar mahal setelah ini."
 
-"Setahuku, *kau* juga dianugerahi gelar sebagai 'Raja', kan?" kata Lailaiti lagi, "tapi kau sendiri yang memilih untuk pergi dari Yunnan."
+"Setahuku, *kau* juga dianugerahi gelar sebagai 'Raja', kan?" kata Babusha lagi, "tapi kau sendiri yang memilih untuk pergi dari Yunnan."
 
 "Ah, ya," kata Kusala, tertawa, "Nenekku yang hebat, memberiku gelar, hanya supaya aku tidak bikin ribut waktu penobatan Shidibala."
 
-"Aku hanya tahu, kau memang bikin ribut di Shaanxi," kata Mailaiti lagi, "Memang, saat itu kita belum menikah, aku tidak tahu masalahnya, tak usah kau ceritakan lagi. Tapi sekali lagi, itu semua sudah berlalu. Sekarang bukankah keluarga kita baik-baik saja, untuk apa kau kutak-katik lagi masalah seperti ini? Sumber bencana!" Ia mengeluh, memegang perutnya, "Aih, kau membuat anak ini berteriak!"
+"Aku hanya tahu, kau memang bikin ribut di Shaanxi," tandas Babusha, pandagannya penuh kritik, "Memang, saat itu kita belum menikah, aku tidak tahu masalahnya, tak usah kau katakan lagi. Tapi sekali lagi, itu semua sudah berlalu. Sekarang bukankah keluarga kita baik-baik saja, untuk apa kau kutak-katik lagi masalah seperti ini? Sumber bencana!" Ia mengeluh, memegang perutnya, "Aih, kau membuat anak ini berteriak!"
 
-Buru-buru Kusala membantunya duduk. Toghon ikut memegang tangan ibu tirinya. "*Niang*, idak apa-apa, kan?"
+Buru-buru Kusala membantunya duduk. Toghon ikut memegang tangan ibu tirinya. "*Niang*, tidak apa-apa, kan?"
 
 Babusha mengelus kepala anak itu dengan rasa sayang. "Kalau kau makan yang banyak, *Niang* tentu tidak apa-apa."
 
