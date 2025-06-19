@@ -1,6 +1,7 @@
 ---
 layout: default
-title: README
+title: Paladin in the Violent Winds | Home
+description: Paladin in the Violent Winds is a story built on top of Jin Yong's classic Yitian Tulong Ji, or 'The Heavenly Sword and The Dragon Slaying Sabre', but with twists to align closely with historical events during the late Yuan Dynasty backdrop.
 ---
 
 # Paladin in the Violent Winds
