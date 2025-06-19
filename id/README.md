@@ -1,5 +1,3 @@
-*Okay, let us review the complete README:*
-
 # Ksatria Di Tengah Badai
 
 Cerita ini disusun berdasarkan karakter-karakter di dalam karya Jin Yong (Louis Cha), yang berjudul asli 'Yitian Tulong Ji'[^judul-asli] atau dalam bahasa Inggris 'The Heavenly Sword and the Dragon Slaying Sabre', dengan memakai gagasan di dalam *event* yang tidak dieksplorasi Jin Yong sendiri.

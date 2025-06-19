@@ -5,7 +5,7 @@ Isi tulisan yang 'hanya' berisi delapan belas jurus itu ternyata jauh lebih suli
 
 Tetapi perhatiannya segera tertuju pada sebuah istilah 'Feilong Zai Tian'[^feilong-zai-tian], yang adalah nama jurus kedua dari delapan belas jurus itu. Ini adalah sebuah pepatah kuno, yang menggambarkan bahwa seekor Naga yang sedang terbang di langit akan mampu menemukan sosok manusia yang istimewa di bawahnya. Naga itu, dari posisinya yang istimewa, akan punya pandangan tentang urusan yang sedang terjadi di dunia, karena itu akan bisa melacak jejak orang yang punya niat baik dan bijaksana.
 
-[^feilong-zai=-tian]: Feilong Zai Tian (飛龍在天), "Sang Naga Terbang di Angkasa".
+[^feilong-zai-tian]: Feilong Zai Tian (飛龍在天), "Sang Naga Terbang di Angkasa".
 
 Menghubungkan semua ini dengan Ki Son-yeo, ia kemudian tertawa dalam hati. Ayahnya bisa saja, pikirnya, *ini bukan Naga Terbang di Angkasa, tapi Peri Cilik Terbang di Angkasa*[^xiao-jingling].
 
