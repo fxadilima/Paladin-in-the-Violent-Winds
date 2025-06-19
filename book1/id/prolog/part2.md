@@ -5,12 +5,11 @@ Isi tulisan yang 'hanya' berisi delapan belas jurus itu ternyata jauh lebih suli
 
 Tetapi perhatiannya segera tertuju pada sebuah istilah 'Feilong Zai Tian'[^feilong-zai-tian], yang adalah nama jurus kedua dari delapan belas jurus itu. Ini adalah sebuah pepatah kuno, yang menggambarkan bahwa seekor Naga yang sedang terbang di langit akan mampu menemukan sosok manusia yang istimewa di bawahnya. Naga itu, dari posisinya yang istimewa, akan punya pandangan tentang urusan yang sedang terjadi di dunia, karena itu akan bisa melacak jejak orang yang punya niat baik dan bijaksana.
 
-[^feilong-zai=-tian]: Feilong Zai Tian (飛龍在天), "Sang Naga Terbang di Angkasa".
+[^feilong-zai-tian]: Feilong Zai Tian (飛龍在天), "Sang Naga Terbang di Angkasa".
 
-Menghubungkan semua ini dengan Ki Son-yeo, ia kemudian tertawa dalam hati. Ayahnya bisa saja, pikirnya, *ini bukan Naga Terbang di Angkasa, tapi Peri Cilik Terbang di Angkasa*[^xiao-jingling].
+Menghubungkan semua ini dengan Ki Son-yeo, ia kemudian tertawa dalam hati. Ia tersenyum geli membayangkan ayahnya mungkin keliru — bukan Naga Terbang di Angkasa, tapi *Peri Kecil yang Terbang di Angkasa*.[^xiao-jingling]
 
 [^xiao-jingling]: Xiao Jingling (小精靈), "Peri Kecil". Dalam hal ini, "Xiao Jingling Zai Tian" (小精靈在天) memang berarti "Peri Kecil di Angkasa".
-
 
 Ia baru berpikir begitu, saat ini Ki Son-yeo mengerutkan keningnya, bertanya, "Paman, apa artinya 'Kanglong You Hui'[^kanglong-you-hui]? Mengapa naga bisa menyesal?"
 
@@ -41,17 +40,11 @@ Suatu pikiran yang menyeramkan melintas di benak Ki Son-yeo, ia bergegas mengham
 
 Ia menangis dan menjerit sekuat tenaga untuk memanggil gurunya, tetapi tangan orang tua itu sudah menjadi dingin dan mulai kaku, tak ada hembusan nafas lagi dari lubang hidungnya.
 
----
-
-*Not long after, another heartbreaking moment occured fro Ki Son-yeo:*
-
 Saat ini, pertama kalinya, Ki Son-yeo merasakan seolah-olah setengah jiwanya ditarik keluar, terbawa oleh gurunya. Orang sering bercerita tentang kematian, ia belum pernah melihat sendiri, tetapi saat ini ia mengalaminya langsung, bahwa orang yang dikatakan 'mati' ini, ternyata tidak akan mungkin bisa bangkit lagi untuk selama-lamanya. Saat ini ia masih bisa melihat gurunya yang tampak sudah sangat tua, namun begitu, gurunya begitu berbahagia, seolah-olah baru menemukan sesuatu yang sangat memuaskan hatinya. Ia ingin berlama-lama memandangi gurunya, menyimpan gambaran tentang orang tua ini di dalam hatinya. Setelah ini, ketika orang menguburkan gurunya di dalam sebuah lubang, lalu menimbun lubang itu dengan tanah, ia tak mungkin lagi bertemu dengan gurunya ini.
 
 Hati mereka berdua saat itu terasa dingin, sedingin tangan dan kaki guru mereka, ayah kandung pamannya, yang saat ini sedang menangis di sebelahnya.
 
 Tiupan angin dari jendela di akhir musim dingin itu menambah dinginnya ruangan. Douluo Jing dan Ki Son-yeo masih termenung di situ, enggan meninggalkan ayah dan guru mereka tercinta.
-
----
 
 Bibi Lian datang bersama keluarganya beberapa hari kemudian. Ia baru melahirkan anaknya yang ketiga, seorang anak perempuan yang cantik. Ia juga hanya bisa menangis karena tak sempat bertemu dengan Douluo Haoyu untuk terakhir kalinya sebelum meninggal. "Ayah, cucu ayah baru lahir... mengapa ayah buru-buru pergi? Anak ini belum punya nama, sengaja menunggu sampai ayah yang memberinya nama..."
 
@@ -61,7 +54,7 @@ Yang Dao berkata, "Yuefu terakhir sangat memperhatikan Son-yeo. Kita panggil saj
 
 [^shaonu]: Shaonu (少女), "Gadis kecil', sama artinya dengan 'Son-yeo'.
 
-"Hei, ini bagus," kata Douluo Jing, tersenyum, "Anak iu jadi punya adik perempuan. Dia pasti senang."
+"Hei, ini bagus," kata Douluo Jing, tersenyum, "Anak itu jadi punya adik perempuan. Dia pasti senang."
 
 Tetapi, ketika ia baru selesai mengatakannya, seorang pelayan dari rumah Ki Ja-oh datang membawa kabar, bicara dalam bahasa Han yang kurang lancar, "*Shaoye*, ibu Son-yeo baru meninggal — anak itu sekarang sedang pingsan..."
 
@@ -71,7 +64,7 @@ Tetapi, ketika ia baru selesai mengatakannya, seorang pelayan dari rumah Ki Ja-o
 
 Ki Ja-oh, saat ini sudah mendekati enam puluh tahun, adalah seorang komandan militer di Inju. Meskipun tak punya pangkat yang tinggi, namun ia tetap adalah seorang keturunan bangsawan. Suasana duka di tempat kediaman Ki Son-yeo berbeda jauh dengan sepi dan dinginnya pondok bambu di mana terakhir kalinya Ki Son-yeo hanya bersama dengan Douluo Jing menemani jenazah Douluo Haoyu.
 
-Ketika mereka tiba di situ, banyak orang tampak berkerumun mengelilingi Ki Son-yeo yang sedang pingsan. Dengan segera, Douluo Lian, mengabaikan sopan santun, berkatam "Kalian semua berkerumun begitu rapat, anak ini tidak bisa bernafas! Biarkan dia sendiri, kami akan menemaninya!" Tanpa keraguan, ia mengangkat gadis kecil itu masuk ke kamarnya, hanya ditemani oleh pelayan yang tadi membawa kabar kepada mereka.
+Ketika mereka tiba di situ, banyak orang tampak berkerumun mengelilingi Ki Son-yeo yang sedang pingsan. Dengan segera, Douluo Lian, mengabaikan sopan santun, berkata, "Kalian semua berkerumun begitu rapat, anak ini tidak bisa bernafas! Biarkan dia sendiri, kami akan menemaninya!" Tanpa keraguan, ia mengangkat gadis kecil itu masuk ke kamarnya, hanya ditemani oleh pelayan yang tadi membawa kabar kepada mereka.
 
 Melihat Ki Ja-oh sedang tertunduk lesu tanpa semangat, Douluo Jing dan Yang Dao mendekatinya dengan membawa teh hangat. "*Hyeongnim*[^hyeongnim], tenangkan dirimu," kata Douluo Jing, menyodorkan cangkir teh, "Bagaimana bisa mendadak begini?"
 
@@ -83,9 +76,9 @@ Di lembaran itu hanya tertulis kalimat pendek, 'Hari ini Yang Mulia sudah tiba.'
 
 "Istriku menyuruh orang menunggu kabar pulangnya Yang Mulia," kata Ki Ja-oh lagi, "Dia hanya ingin mengatakan sesuatu kepada Son-yeo. Bagaimana pun juga, perjodohan itu tidak bisa kami batalkan. Kurasa kabar ini mengejutkannya..."
 
-"Oh!" Yang Dao dan Douluo Jing segera memahami apa yang terjadi. Rupanya selama ini ibu Ki Son-yeo sedang mempersiapkan gadis kecil itu untuk menerima kabar tentang lamaran resmi yang mungkin, dalam bayangannya, akan segera tiba begitu Raja Chungsuk pulang. Dengan surat ini mereka jadi tahu bahwa sekarang ini Raja mereka memang sudah tiba di Goryeo. Sepertinya berita tentang kedatangannya sengaja tidak disebarluaskan.
+"Oh!" Yang Dao dan Douluo Jing segera memahami apa yang terjadi. Rupanya selama ini ibu Ki Son-yeo sedang mempersiapkan gadis kecil itu untuk menerima kabar tentang lamaran resmi yang mungkin. Dalam bayangannya, akan segera tiba begitu Raja Chungsuk pulang. Dengan surat ini mereka jadi tahu bahwa sekarang ini Raja mereka memang sudah tiba di Goryeo. Sepertinya berita tentang kedatangannya sengaja tidak disebarluaskan.
 
-Sekitar sepuluh menit kemudian, Ki Son-yeo bersama Douluo Lian dan pelayan muncul dari dalam kamarnya. Gadis kecil itu tampak agak pucat, mengalami dua kali kehilangan besar berturut-turut. "Eomma..." gumamnya. Ia lalu mesuk ke ruangan yang dipakai untuk membaringkan jenazah ibunya dan menangis di situ. Douluo Lian dan pelayan itu menamaninya.
+Sekitar sepuluh menit kemudian, Ki Son-yeo bersama Douluo Lian dan pelayan muncul dari dalam kamarnya. Gadis kecil itu tampak agak pucat, mengalami dua kali kehilangan besar berturut-turut. "Eomma..." gumamnya. Ia lalu masuk ke ruangan yang dipakai untuk membaringkan jenazah ibunya dan menangis di situ. Douluo Lian dan pelayan itu menamaninya.
 
 Merasa tak tahu apa yang harus mereka katakan untuk menghibur Ki Son-yeo, Douluo Jing dan Yang Dao hanya menemani Ki Ja-oh bicara, memasang telinga mereka sebagai pendengar yang baik.
 

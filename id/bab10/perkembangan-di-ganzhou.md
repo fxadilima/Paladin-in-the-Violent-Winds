@@ -1,7 +1,4 @@
 # Bab 10
-
-*Enough with Ningxia, for now. We must take a look at Ganzhou, but this time with different tones, injecting political, religious and tensions:*
-
 ## *Ganzhou, 1361: Kabar Gembira dan Kecemasan*
 
 Kabar mengenai rombongan Zhang Wuji dan Xiao Zhao yang telah tiba dengan selamat di Ningxia segera diterima melalui Delapan Panah Dewa. Sejak itu secara rutin Ah Da, Ah Er dan Ah San bekerja sama dengan Delapan Panah Dewa menghubungkan Ningxia dengan Kaifeng, Xiangyang dan Ganzhou untuk menyampaikan surat-surat pribadi yang belum bisa dikirimkan melalui burung-burung merpati mereka.
@@ -54,10 +51,6 @@ Saat ini ketiga anak laki-laki Zhao Min sudah pandai mengoceh dalam bahasa yang 
 
 Mengetahui maksud Lorenzo, Zhou Zhiruo memberikan kuasnya dan sehelai kertas kosong, lalu membiarkan anak itu menggambar di atas kertas. Anak itu memegang kuas dengan cara yang salah, dan berusaha menirukan gambar karakter besar yang ditulis Zhou Zhiruo sebelumnya. Ia tentu saja menulis dengan urutan yang salah, karena karakter Gui yang berarti hantu itu bukan karakter yang terlalu sederhana, tetapi ternyata ia berhasil menirukan gambar itu, meskipun hasil tulisannya jelek.
 
----
-
-*An interesting notable distinct talent uncovered during this simple familial gathering, foreshadowing each children's future:*
-
 Ini pertama kalinya mereka melihat Lorenzo berhasil menirukan gambar karakter yang ada artinya. Semua orang bersorak sambil bertepuk tangan memujinya. Baik Agostin maupun Alessandra yang lebih besar dari Lorenzo tidak bisa melakukan hal seperti itu. Li Furen sangat gembira melihat cucu kesayangannya ternyata sesuai dengan apa yang diharapkannya selama ini. Ia berkata, "Mulai sekarang, anak-anak harus belajar menulis setiap hari. Kalian harus membawa hasil tulisan 
 mereka yang terbaik, dan memamerkannya di sini."
 
@@ -90,11 +83,6 @@ Zhao Min hanya menoleh kepada Sikong Juimei yang saat itu sedang menyuapi Zihan,
 
 Li Furen tertegun, lalu mengamati Sikong Jiumei baik-baik. Tak lama kemudian ia tertawa ringan sambil berkata, "Zihan belum genap dua tahun, tapi dia tentu saja anak laki-laki, sedangkan Jiumei begitu cantik, tentu saja dia ingin menciumnya. Kau bisa memberitahu dia dengan lembut, tidak usah membentaknya."
 
-
----
-
-*Unexpectedly, Zhou Zhiruo take it seriously, effected by her own (likely misjudged) personal dislike of Zhang Wuji's tendency towards beautiful women. 'Grandfather' in this case refer to Chaghan Temur:*
-
 Zhao Min kembali tertawa. Tetapi Zhou Zhiruo berkata, "Meizi! Ini sama sekali tidak lucu."
 
 Saat ini Sikong Jiumei sudah menjelang delapan belas tahun, dan ia sangat cantik. Mendengar pujian tulus dari Li Furen, pipinya merona, berkata, "Jiumei selalu menganggap Han'er dan Ying'er sebagai adik Jiumei sendiri. Furen jangan kuatir."
@@ -111,11 +99,6 @@ Zhao Min sudah siap menjawab, tetapi ibunya buru-buru mengedipkan mata, dan ia s
 
 Kali ini Zhao Min mengabaikan isyarat mata dari ibunya, dan menggenggam tangan kanan Zhou Zhiruo yang sedang memegang mangkuk sup di atas meja. Ia merasa tangan itu agak dingin. Zhou Zhiruo sengaja menggeser posisi duduknya, sehingga tidak perlu memandang ke arah Li Furen dan Zhao Min. Tetapi begitu merasakan sentuhan Zhao Min, ia berpaling kembali ke arah mereka tanpa bicara. Lalu Zhao Min berkata, "Jiejie, aku bisa memahami maksudmu. Mengenai *Dajie*, aku juga belum memahaminya dengan baik, aku hanya merasa sikapnya agak aneh. Belakangan aku tahu, terhadap semua orang lain dia memang begitu, jadi aku mengabaikannya. Kalau mengenai Xiao Zhao, kau dan aku pasti tahu apa yang terjadi di Pulau Ular saat itu. Jika saja masih ada jalan lain untuk menyelamatkan semua orang, maka Xiao Zhao pasti tidak akan mau pergi ke Persia bersama ibunya. Setelah menyelamatkan kita, Wuji Gege dan dia pastilah akan pergi ke suatu tempat dan menghilang dari dunia persilatan, sama seperti yang dilakukan oleh Tajkis. Seandainya itu yang terjadi, maka saat ini Agostin dan adik-adiknya tentu saja tidak akan kita lahirkan ke dunia ini."
 
-
----
-
-*Actually, Li Furen, even though is Zhao Min's mother, does not completely understand the complexity of the relationship between Zhang Wuji and these other women. But she knew there must be some logical reasons behind each. Currently, only Li Furen hld the truth that Ah Xiu and Xiao Zhao had already married to Zhang Wuji, although their marriages was arranged by different individuals, each with their own reasoning:*
-
 Setelah mendengar uraian Zhao Min, sekarang Li Furen memahami masalah ini dengan baik. Tetapi ia masih tidak ingin mengatakan apa-apa, dan membiarkan Zhou Zhiruo berpikir sendiri. Lalu Zhao Min menghela nafas, sebelum melanjutkan, "Setelah itu, Bibi Luo tidak mengatakan apa-apa kepada kita. Sebelumnya, Bibi Mei juga tidak menceritakan apa-apa kepadamu tentang Xiao Zhao. Tadinya kukira mereka berdua memang tidak tahu, tapi sekarang aku yakin bahwa mereka sudah tahu semua cerita tentang Xiao Zhao dan Wuji Gege dari Bibi Qi. Sebelum kita berangkat ke Xiangyang dari Wudang, aku yakin Bibi Qi pasti mengatakan sesuatu kepadamu mengenai hal ini. Ikatan kekeluargaan antara mereka semua — Tajkis, Bibi Luo, Bibi Mei dan Bibi Qi — sama seperti saudara kandung. Bahkan kepada Yin Popo juga, apalagi sekarang Yin Popo sudah meninggal, jadi mereka hanya bisa memperhatikan Wuji Gege. Dengan sendirinya, karena sekarang ini Tajkis tidak ada di sini, maka mereka pasti akan memperlakukan Xiao Zhao dengan sangat baik." 
 
 Li Furen dengan jelas melihat sekarang Zhou Zhiruo sedang sangat marah. Keterangan Zhao Min itu memang dimegerti dengan baik olehnya, tetapi sama sekali tidak membuat keadaan menjadi lebih baik. Sebaliknya, Zhou Zhiruo berkata, "Jadi maksudmu Bibi Mei dan Bibi Luo juga bermaksud menikahkan anak-anak mereka dengan Wuji Gege, dan mereka semua sekaligus ingin menjodohkan Xiao Zhao? Bibi Qi memang pernah mengatakan sesuatu tentang Yin Li, dan aku masih bisa menerimanya dengan baik. Aku yang salah saat itu, jadi aku sekaligus ingin membayar kesalahanku. Tapi bukankah Yin Li sendiri akhirnya menikah dengan Wang Baobao? Jadi masalah itu seharusnya sudah selesai, mengapa tiba-tiba Xiao Zhao kembali ke Zhongyuan dan mengganggu kita?"
@@ -123,10 +106,6 @@ Li Furen dengan jelas melihat sekarang Zhou Zhiruo sedang sangat marah. Keterang
 "Zhou Jiejie, aku tidak mengatakan bahwa Bibi Mei dan Bibi Luo ingin menjodohkan anak-anak mereka dengan Wuji Gege," kata Zhao Min sambil tertawa. "Menurut Lihua, *Dajie* kabur dari istana justru karena Huang Shang ingin menjodohkannya dengan cicit Sayyid Ajjal, Gubernur Yunnan itu. Soal perjodohan, aku yakin baik *Dajie* maupun Lihua bukan orang yang dengan gampang dipaksa oleh ibu mereka maupun Huang Shang. Kurasa Xiao Zhao juga masih tetap akan menampilkan diri sebagai seorang pelayan seperti dulu, kita bukan tidak tahu bagaimana tabiat Xiao Zhao. Dia pasti tidak akan menantang Wuji Gege dengan tampil sebagai ketua Ming Jiao."
 
 "Tentu saja dia tidak akan menantang Wuji Gege," kata Zhou Zhiruo agak sinis. "Kau pasti tahu, maksudku bukan itu."
-
----
-
-*While knowing the truth, currently Li Furen still have no idea of how to solve this complicated relationship, but she knew exactly that revealing the truth, for now, is not the right choice:*
 
 Li Furen mengunci mulutnya rapat-rapat. Dari nada bicara Zhou Zhiruo, ia tahu bahwa sesuatu yang tidak baik pasti akan terjadi jika isi surat Zhang Wuji yang saat ini masih ada di tangannya sampai bocor ke telinga Zhou Zhiruo. Setelah Zhao Min dan Zhou Zhiruo pulang ke rumah mereka sendiri yang tak jauh dari rumahnya, hanya kedua cucu kesayangannya — Agostin dan Lorenzo — yang ada di dekatnya. Sikong Jiumei dan Lu Xian yang mengasuh kedua anak itu juga ditinggalkan di rumahnya. Li Furen merasa bisa mempercayai kedua gadis itu, sejauh ini mereka berdua tak pernah mengecewakannya.
 

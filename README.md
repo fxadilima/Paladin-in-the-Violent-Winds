@@ -42,7 +42,15 @@ However, certain aspects of Jin Yong's narrative in this section always felt a b
 
 10. *The "Holy Maiden" Anomaly in Manichaeism*: A glaring inconsistency in Jin Yong's narrative is the assertion that Persian Manichaeism taught its followers to have a 'Holy Maiden' as their leader. This is particularly strange, considering Manichaeism itself originated from the spiritual experiences of a Persian named 'Mani,' who was one hundred percent male. How, then, could it evolve into a doctrine that prioritizes a woman as its leader? This specific incongruity, in our story, deeply troubles Xiao Zhao, who is clearly in love with, and loved by, Zhang Wuji!
 
+Unlike Jin Yong's narrative, where Manichaeism has been persecuted during the late Yuan Dynasty, in here, we try to maintain historically correct nuances found in https://en.wikipedia.org/wiki/Chinese_Manichaeism#Song_and_Yuan_dynasties, quoted as follow:
+
+"Their fortunes changed during the Mongol-led Yuan dynasty, where the religion enjoyed a stable existence while the Sakya sect of Tibetan Buddhism served as the ‘’de facto’’ state religion of the Yuan. Two elaborate silk paintings survive from this era: *Manichaean Diagram of the Universe and Sermon on Mani's Teaching of Salvation*. These works provide an insight into Yuan-era cosmology of Chinese Manichaeism."
 
 ## Why Read Paladin in the Violent Winds?
 
 If you're a fan of Jin Yong's universe, interested in a more historically grounded and nuanced portrayal of the Yuan Dynasty, or simply enjoy a story that dares to fill in the blanks and challenge established narratives, then Paladin in the Violent Winds is for you. We aim to honor the spirit of the original while enriching its tapestry with historical depth, character consistency, and a fresh perspective on a turbulent era.
+
+## Cloning
+
+The `main` branch was used for [my personal github.io](https://fxadilima.github.io/Paladin-in-the-Violent-Winds), so make sure you always use the `master branch` when cloning, so that my personal choice for that site won't bother you.
+
