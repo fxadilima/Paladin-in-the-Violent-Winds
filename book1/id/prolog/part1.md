@@ -103,9 +103,9 @@ Nenek Shidibala yang berwibawa, Dagi, mengangkat Shidibala menjadi Putra Mahkota
 
 Ayahnya, Ayurbarwada, bahkan sempat bermain-main dengan gagasan untuk mengundurkan diri dari tahta, membiarkan Shidibala menggantikannya. Pelindung Dagi, Temuder, diangkat sebagai guru Shidibala, *setelah ia sendiri gagal menaikkan pajak*.
 
-Antara saat kematian Ayurbarwarda dan kematiannya sendiri, pada bulan Oktober 1322, Temuder memiliki kekuasaan yang sangat kuat, dengan penuh bagi Dagi. Segera setelah penobatan cucunya, Dagi kembali memasang Temuder sebagai menteri dalam Sekretariat Pusat dan mengambil alih politik di genggaman tangannya sendiri secara lebih terbuka ketimbang pada saat Ayurbarwarda masih berkuasa.
+Antara saat kematian Ayurbarwarda dan kematiannya sendiri, pada bulan Oktober 1322, Temuder memiliki kekuasaan yang sangat kuat, dengan dukungan penuh dari Dagi. Segera setelah penobatan cucunya, Dagi kembali memasang Temuder sebagai menteri dalam Sekretariat Pusat dan mengambil alih politik di genggaman tangannya sendiri secara lebih terbuka ketimbang pada saat Ayurbarwarda masih berkuasa.
 
-Terlepas dari upaya Shidibala merombak pemerintahan berdasarkan prinsip-prinsip Konfusianisme, kubu Temuder bersekutu dengan pengawal dan membunuh Shidibala pada tahun 1323. *Ini adalah peralihan kekuasaan berdarah yang pertama di dalam sejarah Dinasty Yuan*, dikenal sebagai Kudeta Nanpo[*nanpo], kaisar yang sedang berkuasa digulingkan oleh kelompok yang dipimpin oleh seorang non-Borjigin.
+Terlepas dari upaya Shidibala merombak pemerintahan berdasarkan prinsip-prinsip Konfusianisme, kubu Temuder bersekutu dengan pengawal dan membunuh Shidibala pada tahun 1323. *Ini adalah peralihan kekuasaan berdarah yang pertama di dalam sejarah Dinasty Yuan*, dikenal sebagai Kudeta Nanpo[^nanpo], kaisar yang sedang berkuasa digulingkan oleh kelompok yang dipimpin oleh seorang non-Borjigin.
 
 [^nanpo]: Kudeta Nanpo atau Nanpo Zhibian (南坡之變), adalah peristiwa berdarah yang menewaskan Kaisar Shidibala, di usianya yang baru dua puluh satu tahun, dalam masa emas kekuasaanya, oleh kelompok non-Borjigin.
 

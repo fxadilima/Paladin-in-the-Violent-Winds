@@ -203,3 +203,11 @@ Focus on Functionality and Aesthetics:
 The Yuan Dynasty architecture aimed to balance practical considerations with aesthetic appeal, incorporating elements like adaptable windows and doors alongside decorative features. 
 
 
+---
+
+### Thread
+
+Segar lagi, setelah sarapan dgn 'Mie Setan', hehe.. 
+
+Aku lagi merevisi sebagian dari https://fxadilima.github.io/Paladin-in-the-Violent-Winds/book1/id/prolog/part1, betulin typos (yg buanyaak banget).
+
