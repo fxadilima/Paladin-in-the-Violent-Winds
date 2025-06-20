@@ -92,7 +92,7 @@ Jauh sebelum naik tahta, ia dan kakaknya, Khayishan, disingkirkan dari arena pol
 [^you-chengxiang]: You Chengxian (右丞相), "Perdana Menteri Sayap Kanan".
 [^zhongxing]: Zhongxing adalah Ningxia di jaman modern.
 
-Singkatnya, Khayishan kemudian naik tahta, dan mengangkat Ayurbarwada sebagai Putra Mahkota. Kedua bersaudara ini saling berjanji bahwa anak-anak mereka akan memerintah secara bergantian.
+Singkatnya, Khayishan kemudian naik tahta, dan mengangkat Ayurbarwada sebagai putra mahkota. Kedua bersaudara ini saling berjanji bahwa anak-anak mereka akan memerintah secara bergantian.
 
 Tidak seperti pewarisan tahta sebelumnya, yang menimbulkan persengketaan, ketika Khayishan meninggal, Ayurbarwada dengan mulus melangkah ke singgasana. Saat ini, Shidibala memang mewarisi tahta sebagai Khan Agung dan sekaligus Kaisar Dinasti Yuan. Tetapi kematian Ayurbarwada dan keputusannya ini menjadi awal dari pertikaian politik selama dua puluh tahun. Kubu Khonggirat, yang dipimpin oleh Temuder dan Dagi, menjadi semakin kuat.
 
@@ -210,7 +210,7 @@ Sementara itu, berita tentang penobatan Yesun Temur menjadi Khan dan Kaisar Dina
 
 Ayah Yesun Temur adalah Gammala, putra tertua Zhenjin, yang adalah pewaris resmi — putra mahkota pilihan Kubilai Khan, yang sayangnya meninggal sebelum Kubilai sendiri. Zhenjin dikenal sebagai penganut setia Konfusianisme dan jelas beraliran sama seperti Kubilai, bahkan mungkin lebih dalam. Setelah Zhenjin sendiri meninggal, Gammala ditunjuk sebagai *Jinong*[^jinong], tetapi kemudian kalah bersaing dengan adiknya, Temur. Berikutnya, Darmabala dan semua keturunan Kubilai dari sisi ini mendominasi pemilihan Khan maupun Kaisar Dinasti Yuan, membuat Gammala dan putranya, Yesun Temur, tersingkir sama sekali dari persaingan. Tetapi, sebagai Jinong, Gammala memerintah di padang rumput Mongolia dan Gurun Gobi, lalu mengabadikan keagungan Genghis Khan di sana melalui Empat Ordo Agung Mongolia. Setelah Gammala meninggal, Yesun Temur mengambil alih posisinya sebagai Jinong. Selama pemerintahan Khayishan, Ayurbarwada dan Shidibala, Yesun Temur, yang punya tanah sangat luas di utara dan pasukan militer yang kuat, menjadi pangeran yang paling dihormati oleh Majelis Agung Mongolia. Kekuatannya sebagai pemimpin di padang rumput adalah tak tertandingi oleh Khan lain.
 
-[^jinong]: Jinong aa Jinwang (晉王) adalah yang sangat tinggi, yang bisa dijabat oleh seorang bangsawan Dinasti Yuan. Pemegang gelar ini hanya mereka yang punya ikatan keluarga dengan Kubilai.
+[^jinong]: Jinong atau Jinwang (晉王) adalah posisi sangat tinggi, yang hanya bisa dijabat oleh seorang bangsawan Dinasti Yuan. Pemegang gelar ini hanya mereka yang punya ikatan keluarga dengan Kubilai Khan.
 
 "Hm, bagaimana reaksi rakyat Zhongyuan?" tanya Douluo Haoyu, memejamkan mata di atas dipannya, "Mereka menyukai Yesun Temur ini?"
 
