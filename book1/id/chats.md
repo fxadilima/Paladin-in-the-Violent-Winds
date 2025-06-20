@@ -205,9 +205,38 @@ The Yuan Dynasty architecture aimed to balance practical considerations with aes
 
 ---
 
-### Thread
+### Threads
 
 Segar lagi, setelah sarapan dgn 'Mie Setan', hehe.. 
 
 Aku lagi merevisi sebagian dari https://fxadilima.github.io/Paladin-in-the-Violent-Winds/book1/id/prolog/part1, betulin typos (yg buanyaak banget).
 
+---
+
+```text
+Raindrops are falling on my head
+And just like the guy whose feet are too big for his bed
+Nothing seems to fit
+Those raindrops are falling on my head, they keep falling
+So I just did me some talking to the sun
+And I said I didn't like the way he got things done
+Sleeping on the job
+Those raindrops are falling on my head, they keep falling
+But there's one thing I know
+The blues they send to meet me
+Won't defeat me, it won't be long
+Till happiness steps up to greet me
+Raindrops keep falling on my head
+But that doesn't mean my eyes will soon be turning red
+Crying's not for me
+'Cause I'm never gonna stop the rain by complaining
+Because I'm free
+Nothing's worrying me
+It won't be long till happiness steps up to greet me
+Raindrops keep falling on my head
+But that doesn't mean my eyes will soon be turning red
+Crying's not for me
+'Cause I'm never gonna stop the rain by complaining
+Because I'm free
+Nothing's worrying me
+```
