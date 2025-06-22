@@ -323,5 +323,5 @@ Setelah kepergian Zhou Zhiruo dan Zhao Min, Ma Xiuying merasa sangat kehilangan 
 
 ---
 
-[Berikutnya, Bagian 3: Gua Ziarah Yang Mempesona](tempat-ziarah-agama-budda)
+[Berikutnya, Bagian 3: Gua Ziarah Yang Mempesona](tempat-ziarah-agama-buddha)
 

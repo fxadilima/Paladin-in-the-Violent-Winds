@@ -166,10 +166,6 @@ Kecuali mengenai Pingliang, sebenarnya keterangan Fan Yao itu hanya mengingatkan
 
 Sekarang Lihua sudah pulih dari keterkejutannya semula, dan mulai menguasai keadaan. Ia berkata dengan nada lebih tegas, "Baik, aku mengerti. Sekarang kita akan membicarakan semuanya di dalam tendaku!" Ia berpaling ke arah Xiao Zhao dan Zhang Wuji, berkata menirukan sikap ayahnya, sambil melambaikan tangan kepada para penduduk sebagai isyarat supaya mereka tenang, "Katakan kepada semua orang supaya mereka tetap tenang. Percayalah, setelah ini keadaan akan menjadi jauh lebih baik!"
 
----
-
-*For the local villagers, it seems that the emperor is eventually taking their miserable territory seriously, and began to develop the area. They really are excited, so their previous wish upon seeing Zhang Wuji and Xiao Zhao's arrival was not a daydream after all!:*
-
 Melanjutkan sandiwara yang dibangun Fan Yao, kini Zhang Wuji dan Xiao Zhao membungkuk ke arah Lihua, meletakkan tangan di dada, berkata singkat, "Baik."
 
 Sementara Lihua, Mei Jian, Fan Yao dan kedua gadis itu masuk ke tenda besar Lihua, keduanya tersenyum ramah kepada para penduduk yang sedang menunggu dengan harap-harap cemas. Empat orang yang datang paling awal itu kini berdiri di belakang mereka.
