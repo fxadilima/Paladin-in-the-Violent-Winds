@@ -47,6 +47,8 @@ Hati mereka berdua saat itu terasa dingin, sedingin tangan dan kaki guru mereka,
 
 Tiupan angin dari jendela di akhir musim dingin itu menambah dinginnya ruangan. Douluo Jing dan Ki Son-yeo masih termenung di situ, enggan meninggalkan ayah dan guru mereka tercinta.
 
+[^hai-er]: Hai'er (孩兒), "Anakmu ini".
+
 ---
 
 Bibi Lian datang bersama keluarganya beberapa hari kemudian. Ia baru melahirkan anaknya yang ketiga, seorang anak perempuan yang cantik. Ia juga hanya bisa menangis karena tak sempat bertemu dengan Douluo Haoyu untuk terakhir kalinya sebelum meninggal. "Ayah, cucu ayah baru lahir... mengapa ayah buru-buru pergi? Anak ini belum punya nama, sengaja menunggu sampai ayah yang memberinya nama..."
