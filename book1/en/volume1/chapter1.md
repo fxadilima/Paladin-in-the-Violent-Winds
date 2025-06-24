@@ -2,7 +2,7 @@
 ## Chapter 1: Refined for a Hundred Years the Precious Saber Creates a Mysterious Light
 
 <a href="../../../images/large/hsds-03.jpg">
-  <img src="../../../images/small/hsds-03.jpg"
+  <img src="../../../images/large/hsds-03.jpg"
     alt="Tulong Dao di dalam tungku membara"
     style="max-width:200px;float:left;padding:5px"
   />
