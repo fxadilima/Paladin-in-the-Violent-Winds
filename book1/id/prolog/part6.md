@@ -182,8 +182,6 @@ Alangkah terkejutnya mereka. Ternyata kedua orang itu sama sekali tidak melawan.
 
 Rumah di selatan adalah rumah terakhir yang didatangi oleh Xie Xun. Rumah itu tidak sebesar kedua rumah lainnya. Yin Susu dan Ah Luo sama sekali tidak mengalami kesulitan membersihkan semua uang kertas Dinasti Yuan yang bisa mereka temukan di dalam rumah itu. Dua peti kayu berisi emas dan perak mereka bawa langsung ke gerobak yang mereka inggalkan di luar penginapan. Lima orang pengawal Yin Susu, yang adalah anggota Panji Lima Elemen Ming Jiao menjaganya.
 
----
-
 Sebaliknya, begitu Tajkis dan Mei Jian menginjakkan kaki di halaman rumah di sebelah timur, mereka segera diserang oleh sepuluh orang bandit lokal yang juga ingin merampok barang-barang yang ada di dalamnya.
 
 Semua orang ini bersenjata tajam. Karena mereka sama sekali tidak membawa senjata, Tajkis lalu mengambil sepasang tali jemuran pakaian dan menjadikannya sebagai cambuk, melemparkan seutas tali itu kepada Mai Jian. Ia berbisik, "Orang-orang ini menggagalkan rencana kita. Jangan diladeni, kita pergi!"

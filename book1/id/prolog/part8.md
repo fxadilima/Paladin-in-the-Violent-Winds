@@ -1,4 +1,7 @@
 # Prolog
+
+*Now the following sections should make more sense to you:*
+
 ## *Shangdu, Oktober 1328: Terjebak Dalam Peperangan*
 
 Sebenarnya, Wei Yixiao dengan cepat sudah menemukan jejak Tajkis dan Fan Yao, di lingkar luar Shangdu, sedang menuju ke barat laut. Saat itu, mereka berdua sedang bersantai, mendirikan kemah di tepi sungai kecil, jauh dari keramaian. Bagi Wei Yixiao pemandangan ini terasa sangat menjengkelkan.
@@ -206,8 +209,6 @@ Mereka bergegas kembali ke kedai bersama Peng Yingyu, lalu mengajaknya ke dapur 
 Di belakang dapur itu ada sebuah teras yang cukup luas, lengkap dengan meja bundar dan beberapa kursi yang bisa dipakai
 untuk berbicara dengan santai, sementara teman-teman mereka lainnya sedang sibuk melayani para pengunjung kedai.
 
----
-
 Yin Susu mengambil sepoci teh hijau dan beberapa potong *mantou* hangat untuk Peng Yingyu. Zhou Dian yang menyamar sebagai pelayan kedai mendekat dan berbisik sambil menyodorkan selembar kertas terlipat, "Baru datang dari utara." lalu pergi lagi membawa nampan berisi makanan ke arah meja tamu.
 
 Selama mereka berdagang di sini, Peng Yingyu, Shuobude dan Wei Yixiao bergerak ke utara untuk menyelidiki apa yang terjadi di Karakorum. Ketika melihat Tajkis berkata, "Ah!" setelah membaca surat yang diselipkan Zhou Dian ke tangannya, mereka agak terkejut.
@@ -227,11 +228,31 @@ sebelum Yang Dingtian menjadi ketua. Kadang-kadang ia memanggil Tajkis dengan se
 
 Mereka tahu bahwa Ahmad Fanakati adalah salah satu menteri kepercayaan Kubilai Khan, sebelum akhirnya terlibat persengketaan dengan Zhenjin, putra mahkota pilihan Kubilai. Saat itu, Kubilai bahkan lebih mempercayai Ahmad Fanakati, yang menuding Zhenjin bersekongkol dengan sejumlah menteri keturunan suku Han untuk memaksa Kubilai mengundurkan diri, dan mengangkat Zhenjin sendiri menjadi kaisar. Zhenjin berakhir dengan putus asa, tenggelam dalam minuman keras, meninggal dalam keadaan merana. Kubilai Khan sangat menyesali peristiwa ini, apalagi kemudian menemukan betapa korupnya Ahmad Fanakati.
 
-Membaca tulisan yang ada di buku itu, tampaknya hanya Tajkis sendiri yang memahami isinya.
-
-
 ---
 
+*After this, all the Ming Jiao's official and Yang Dingtian's personal disciples will be back to Guangmin Ding, despite their desire to loot more treasures in Dadu and other places. Almost all subsequent events will follow Jin Yong's narrative, except for the presence of Ah Luo, Mei Jian and Qi Shengniang:*
+
+Membaca tulisan yang ada di buku itu, tampaknya hanya Tajkis sendiri yang memahami isinya.
+
+"Ini buku yang sangat penting," kata Tajkis, menggeleng kepala dan mengerutkan keningnya, "Aku akan bicara dengan Jiaozhu tentang isi buku ini. Isinya akan sangat membantu kita memahami apa sebenarnya yang terjadi di dalam istana!"
+
+Diam-diam Yang Xiao bernafas lega, setidaknya ini meniadakan kemungkinan bagi dirinya untuk berdebat dengan Tajkis. Ia segera berkata, "Kalau begitu kita bisa segera pulang ke Guangming Ding sekarang. Qi Shimei, kau sebentar lagi dengan resmi akan menjadi murid Shifu dan anggota tetap Ming Jiao!"
+
+Tetapi Tajkis segera berkata, "Kita berenam memang akan pulang, tapi kurasa Yin Shimei harus kembali ke Jiangnan, karena setelah ini Yin Qianbei pasti akan memerlukan bantuannya," ia lalu menatap Yang Xiao dan Fan Yao lekat-lekat, "Da Shige, Er Shige, *menurutku*, sebagian dari harta ini nantinya akan bisa kita kembangkan menjadi sebuah usaha membuat garam kita sendiri di pantai timur. Aku sudah tahu, di Pulau Ular kita bisa mengembangkan usaha itu. Pulau itu boleh dibilang tidak diperhatikan orang, paling banyak kita akan berurusan dengan bajingan pantai. Bagaimana kalau kita menitipkan bagian kita ke Yin Shimei, dia pasti punya tempat di Jiangnan?"
+
+"Kau tidak melaporkannya kepada Shifu?" tanya Yang Xiao, alisnya agak naik.
+
+"Tentu saja aku akan melaporkannya," jawab Tajkis tersenyum, "Kau pikir aku orang seprti apa? Tapi kala kita bawa sekarang, lalu kita membawanya lagi ke Jiangnan, bukankah akan merepotkan? Shifu dan Shiniang pasti akan setuju. Percayalah, *aku* yang akan mengatakannya nanti."
+
+Semua orang sudah tahu kepandaian Tajkis bicara. Dalam hati mereka tahu, apa pun yang akan dikatakannya, Yang Dingtian memang akan menyetujuinya. Meskipun dalam hati mempertanyakan kebenaran cara ini, tapi Yang Xiao terpaksa mengakui, ucapan Tajkis itu sangat beralasan. Membawa-bawa harta sebanyak ini dari barat ke timur sangat beresiko.
+
+"Baiklah," katanya. "Tapi pastikan kau *memang* mengatakannya."
+
+Dengan begini, mereka kemudian berpisah. Yin Susu membawa sebagian dari harta itu kembali ke rumah ayahnya di Jiangnan, sementara keenam saudara seperguruannya kembali ke Guangming Ding bersama para pejabat Ming Jiao lainnya.
+
+Empat bulan setelah itu, mereka hanya mendengar kabar bahwa Kusala memang menjadi Khan Agung di Karakorum, dan sempat diumumkan menjadi Kaisar Dinasti Yuan, tetapi anehnya, yang sungguh-sungguh berkuasa ternyata Tugh Temur. Mereka hanya mendengar kabar lanjutan bahwa Kusala meninggal dalam perjalanan ke Dadu.
+
+Syair populer yang mereka dengar di sepanjang petualangan mereka di Zhongyuan makin ramai dibicarakan orang.
 
 ### Syair Populer Tentang Yitian Jian Dan Tulong Dao
 
@@ -244,6 +265,9 @@ Siapa berani membantah perintahnya?
 Jika Kehendak Surga tidak turun, siapa yang berani menantangnya?
 ```
 
-[^syair-1]: Bunyi aslinya adalah 武林至尊，寶刀屠龍，號令天下，莫敢不從！倚天不出，誰與爭鋒？
+[^syair-1]: Bunyi aslinya, dalam bahasa mandarin, adalah 武林至尊，寶刀屠龍，號令天下，莫敢不從！倚天不出，誰與爭鋒？
 
 
+---
+
+[Berikutnya, Jilid 1: ](../jilid1/bab1.md)

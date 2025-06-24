@@ -108,10 +108,6 @@ Ia memasang kuda-kuda, bermaksud menghunus pedang di tangannya. Tetapi, di luar 
 
 Tanpa mengatakan apa-apa lagi, Yang Xiao berlalu dari situ. Menggunakan *qinggong*-nya, menghilang di tengah kegelapan malam.
 
----
-
-*Right after this, Ki Son-yeo finally find a place to go:*
-
 Mereka berdua mendengar suara Miejue Shitai menghela nafas dari kejauhan. Kelompok Emei Pai itu keluar dari tempat persembunyian mereka dan mendekati Guhongzi yang sedang termangu-mangu di tempatnya berdiri, memandangi Yitian Jian dan sarungnya yang terbenam separuh ke dalam tanah, memamerkan dahsyatnya tenaga dalam Yang Xiao, dan tragisnya kekalahan Emei Pai.
 
 Yue Sanguo memberi isyarat kepada Qi Shengniang yang masih tercengang supaya mengikutinya pergi dari situ.
@@ -163,10 +159,6 @@ Di alun-alun kota itu, Qi Shengniang bersama-sama para penduduk setempat menyaks
 Qi Shengniang membatalkan niatnya untuk menyapa, ketika salah seorang pengawal Toqto'a berkata, "Gongzi, *Jiangjun* memanggilmu."
 
 "Baik, aku tahu," jawab anak itu, lalu segera berbalik untuk meninggalkan tempat itu.
-
----
-
-*And, while watching Toqto'a and General Bayan, Ki Son-yeo accidentally found the people that would change her life:*
 
 Dari jauh ia diam-diam mengamati Toqto'a bersama para pengawalnya melintasi alun-alun, dan mendekati tempat yang kelihatannya dipenuhi oleh orang-orang terhormat. Dari antara orang-orang itu kemudian ada seorang pria bertubuh tinggi besar berdiri menyapanya dengan muka berseri-seri, lalu menepuk-nepuk pundaknya. Tampaknya ia menyuruh anak laki-laki itu duduk di sebelahnya. Tak lama kemudian ia berdiri untuk mengatakan sesuatu kepada orang yang sedang duduk di belakang meja untuk memberikan perintah eksekusi. Saat itu Qi Shengniang mendengar para penduduk kota menyapa pria tinggi besar itu dengan sebutan 'Wangye', yang berarti 'Raja'. 
 
