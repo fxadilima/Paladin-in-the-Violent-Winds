@@ -37,10 +37,12 @@ Beberapa anggota Hai Sha Pai ingin mengejarnya, tetapi mereka tidak tahu ke mana
 
 Yu Daiyan melompat keluar dan memeriksa mayat itu, melihat dua lubang kecil di leher, jelas dibuat oleh dua jari. Ia merasa pasti ada sesuatu yang penting sedang terjadi, dan mempercepat langkahnya, mengikuti anggota Hai Sha Pai.
 
-<img src="../../../images/golok-terbakar.jpg"
-  alt="Tulong Dao di dalam tungku membara"
-  style="max-width:200px;float:left;padding:5px"
-/>
+<a href="../../../images/large/golok-terbakar.jpg">
+  <img src="../../../images/small/golok-terbakar.jpg"
+    alt="Tulong Dao di dalam tungku membara"
+    style="max-width:200px;float:left;padding:5px"
+  />
+</a>
 
 Setelah beberapa saat, orang-orang itu mulai berpisah, mengepung sebuah rumah. Yu Daiyan bertanya-tanya, "Apakah Pedang Naga yang mereka bicarakan itu ada di rumah ini?" Ia kemudian melihat orang-orang di luar mulai menuangkan garam di sekitar rumah, dan berpikir, "Mengapa mereka menuangkan garam di sekitar tempat ini? Tunggu sampai aku menceritakan ini kepada saudara-saudaraku. Aku yakin mereka tidak akan percaya." Namun kemudian ia melihat bahwa orang-orang ini menuangkan garam dengan sangat hati-hati, seolah takut garam itu akan menyentuh mereka. Yu Daiyan segera menyadari apa yang sedang terjadi. Pasti ada racun di dalam garam itu. Ia tidak yakin apakah orang-orang di dalam itu baik atau jahat, tetapi ia merasa perlu memperingatkan mereka bagaimanapun juga. Dalam sekejap, ia terbang menuju rumah itu.
 
