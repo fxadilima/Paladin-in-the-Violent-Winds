@@ -1,6 +1,13 @@
 # Volume 1
 ## Chapter 1: Refined for a Hundred Years the Precious Saber Creates a Mysterious Light
 
+<a href="../../../images/large/hsds-03.jpg">
+  <img src="../../../images/small/hsds-03.jpg"
+    alt="Tulong Dao di dalam tungku membara"
+    style="max-width:200px;float:left;padding:5px"
+  />
+</a>
+
 Flowers bloom, flowers wither. The young men in the martial world have become old. The young girls have begun to show their age with hair turning white.
 
 It’s has been over fifty years since the demise of the Sung dynasty.
