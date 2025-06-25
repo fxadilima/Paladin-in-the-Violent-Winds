@@ -326,28 +326,6 @@ Zhang Zhong bergumam sambil termenung, "*Feilong Zai Tian...*"
 
 Setelah menunggu berhari-hari, bahkan lebih dari dua minggu, ternyata Wei Yixiao, Fan Yao dan Tajkis tidak juga muncul. Bahkan sampai bulan berikutnya, tidak juga ada kabar apa pun dari ketiga orang tersebut. Akhirnya, merela mendengar desas-desus bahwa kelompok yang menamakan diri sebagai pendukun Khayishan, ayah kandung Kusala dan Tugh Temur, telah mengepung Shangdu, tetapi yang datang ke sana bukan prajurit dari Dadu mau pun tempat lain, melainkan dari sekitar Liaodong dan Mongolia Timur, yang dipimpin oleh Burkha Temur dan Orlugh Temur.
 
----
-
-*And the following historical account found in https://en.wikipedia.org/wiki/Khutughtu_Khan_Kusala#Brief_accession_and_sudden_death:*
-
-"At the same time, Kuśala, with support from the Chaghadayid leaders Eljigidey and Duwa Temür, entered Mongolia from the Tarbagatai region (in the Khangai Mountains). He also got support from princes and generals of Mongolia, and with overwhelming military power in the background, put pressure on Tugh Temür, who had already ascended the throne. Kuśala enthroned himself on 27 February 1329, north of Karakorum."
-
-*Meanwhile, unknown to the group in Dadu, Kusala, with significant backing from Chaghadayid leaders like Eljigidey and Duwa Temür, had entered Mongolia from the Tarbagatai region (in the Khangai Mountains). Amassing overwhelming military power with support from various Mongol princes and generals, Kusala exerted immense pressure on his brother, Tugh Temür, who had already ascended the throne in Dadu. On February 27, 1329, Kuśala formally enthroned himself north of Karakorum, declaring himself the rightful Great Khan.*
-- Not so fast, we can build a narrative from his fact.
-
-The accounts regarding Duwa seem to be quite confusing. The following account stated that Duwa died in 1307:
-
-- https://en.wikipedia.org/wiki/Kebek:
-  "The situation in the Chagatai Khanate following the death of *Duwa* in 1307 turned volatile, with two of his successors reigning within one year and with the sons of Kaidu still hoping to regain control over the khans. By 1308 Taliqu was in charge of the khanate but his rule was quickly contested. His enemies rallied among Kebek, and they defeated and overthrew Taliqu in 1308 or 1309. As a result, Kebek became khan of the ulus."
-
-But the following account 
-
-- https://en.wikipedia.org/wiki/Khutughtu_Khan_Kusala:
-  "At the same time, Kuśala, with support from the Chaghadayid leaders Eljigidey and *Duwa Temür*, entered Mongolia from the Tarbagatai region (in the Khangai Mountains)."
-
-Fortunately, from https://en.wikipedia.org/wiki/Duwa_Tem%C3%BCr we know that The name 'Duwa Temur' is belong to another brother of Eljigidey. So Duwa, the father, was indeed died in 1307.
-
-Thus, we can write:
 
 ## *Pegunungan Khangai, Oktober 1328: Sang Naga Terbang Ke Karakorum*
 

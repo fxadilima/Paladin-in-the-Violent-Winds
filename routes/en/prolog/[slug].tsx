@@ -18,7 +18,7 @@ interface BlogPostPageProps extends PageProps {
 export const handler: Handlers<BlogPostData> = {
   async GET(req, ctx) {
     const { slug } = ctx.params; // Access the 'slug' parameter here
-    const txt = await Deno.readTextFile(`${Deno.cwd()}/en/prolog/${slug}`);
+    const txt = await Deno.readTextFile(`${Deno.cwd()}/en/prologue/${slug}`);
     const md = new MarkdownIt({html: true}).use(MarkdownItFootnote);
     const html = md.render(txt);
     const page: BlogPostData = {title: "Testing", content: html};
