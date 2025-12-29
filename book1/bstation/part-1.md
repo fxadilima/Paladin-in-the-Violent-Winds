@@ -32,7 +32,7 @@ Douluo Haoyu, tersenyum tipis, berkata, "Ah Jing, coba kau peragakan."
 
 Ki Son-yeo lalu berjalan ke arah kanan, melewati Douluo Jing, yang juga dianggap sebagai paman gurunya. Tiba-tiba kaki kanan paman gurunya hadir menghadang di depan kakinya yang sedang melangkah. Tentu saja gadis itu langsung terjungkal. Paman gurunya dengan cepat menangkapnya, mencegahnya jatuh ke lantai. Tetapi ia protes, "Cara ini sulit! Shengniang tidak bisa melakukannya, perlu tenaga besar!"
 
-Mata tua Douluo Haoyu berbinar, ketika berkata, "Shengniang, kau terlalu terpaku pada *cara*. Sebenarnya Shifu juga tidak melakukannya seperti itu. Ada banyak *cara* untuk melakukan segala sesuatu, yang paling benar adalah Wu Wei."
+Mata tua Douluo Haoyu berbinar, ketika berkata, "Shengniang, kau terlalu terpaku pada cara. Sebenarnya Shifu juga tidak melakukannya seperti itu. Ada banyak *cara* untuk melakukan segala sesuatu, yang paling benar adalah Wu Wei."
 
 Ki Son-yeo memandang gurunya dengan penasaran. "Wu Wei?" diam sejenak, lalu bertanya, "Shifu, dizi tidak mengerti."
 
@@ -45,7 +45,7 @@ Dizi (弟子), "Murid". Ini cara seorang murid memanggil dirinya sendiri di hada
 ---
 
 
-"Nah, kau lihat, sekarang Shifu sudah tua," kata Douluo Haoyou, tertawa. "Pamanmu, tentu saja jauh lebih kuat. Bagaimana Shifu akan bisa menjatuhkannya?"
+"Nah, kau lihat, sekarang Shifu sudah tua," kata Douluo Haoyou, tertawa. "Pamanmu, tentu saja jauh lebih kuat. Bagaimana Shifu bisa menjatuhkannya?"
 
 Douluo Jing tersenyum tipis. Ia tahu apa maksud ayahnya, tapi belum tahu bagaimana ayahnya akan memperagakan hal ini. Tiba-tiba ayahnya berdiri, mendadak mendekat, berkata, "Hei!" mengulurkan tangan kanannya ke arah mukanya, dengan telapak tangan terbuka. Terkejut, secara naluriah ia melangkahkan kaki kanannya ke belakang. Tetapi ternyata saat itu ia langsung jatuh. Detik berikutnya, ia baru menyadari bahwa gerakan itu hanya tipuan. Sebenarnya ayahnya telah meletakkan tongkatnya dengan menggunakan tangan kiri ke belakang kakinya. Ia jatuh terduduk karena tidak menduga hal ini.
 
