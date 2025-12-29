@@ -6,9 +6,11 @@ Kota Haengju, Goryeo 1320.
 Seorang anak perempuan yang kira-kira berusia lima tahun sedang mendengarkan cerita gurunya dengan penuh perhatian. Matanya hampir tak berkedip. Sesekali ia bertanya dengan penuh rasa ingin tahu dalam bahasa Han yang terdengar nyaris tak ada bedanya dengan bahasa Han penduduk Jiangnan. Ia dipanggil Ki Son-yeo, tetapi gurunya memberinya sebuah nama unik yang sangat indah 'Qi Shengniang', memakai marganya sendiri 'Ki', tetapi diucapkan dalam bahasa Han, lalu menambahkan nama yang mengandung makna 'Gadis Suci'.
 
 ---
+
 Sheng Niang (聖娘), 'Holy Maiden' atau 'Gadis Suci'.
 
-Ki Son-yeo: Marganya memang Ki, dua karakter Son-yeo ini hanya bermakna 'anak perempuan', juga akan diterjemahkan menjadi 'Niang' (娘) dalam bahasa Han. Pada saat itu bahasa Korea hanya mengenal Hanja, baru setelah era Raja Gongmin mereka mulai menggunakan karakter Hangul yang lebih sederhana.
+Ki Son-yeo. Marganya memang Ki, dua karakter Son-yeo ini hanya bermakna 'anak perempuan', juga akan diterjemahkan menjadi 'Niang' (娘) dalam bahasa Han. Pada saat itu bahasa Korea hanya mengenal Hanja, baru setelah era Raja Gongmin mereka mulai menggunakan karakter Hangul yang lebih sederhana.
+
 ---
 
 
@@ -35,9 +37,11 @@ Mata tua Douluo Haoyu berbinar, ketika berkata, "Shengniang, kau terlalu terpaku
 Ki Son-yeo memandang gurunya dengan penasaran. "Wu Wei?" diam sejenak, lalu bertanya, "Shifu, dizi tidak mengerti."
 
 ---
+
 Wu Wei (無為), ini bisa diartikan "tanpa usaha".
 
 Dizi (弟子), "Murid". Ini cara seorang murid memanggil dirinya sendiri di hadapan gurunya.
+
 ---
 
 
@@ -88,7 +92,9 @@ Sebenarnya saat ini Ki Son-yeo sedang memikirkan cara untuk menakut-nakuti seora
 Gurunya tersenyum, memegang tangannya, berkata, "Ya, begitu juga, sebelum kau belajar menggunakan pedang, pelajari dulu, apa itu qinggong." Ki Son-yeo kemudian merasa tubuhnya melayang, ketika gurunya melompat dengan sangat ringan kembali ke atas batu besar, tempat mereka biasa berlatih kungfu.
 
 ---
+
 Qinggong biasa diterjemahkan menjadi "Ilmu Meringankan Tubuh" dalam berbagai cerita silat berbahasa Indonesia.
+
 ---
 
 
